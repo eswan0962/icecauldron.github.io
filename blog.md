@@ -16,8 +16,9 @@ The ultimate middle ground, the transitory state of being that allows you to go 
 You have to be fanatic about everything and nothing. To be fanatic and empty and to get others to believe you, love you and want to move with you, you have to be active and accountable but allow for all outcomes. The failure of man however is then inability to see past structure and repetition... which is why nothingness is called to. Moment to moment variation is the actual rule and no creed beyond the responsibility of the body and laws of nature are dictitious (new word) to every interaction. Which federal laws are bendable enough to allow all advances lawful, and will the start of a new community need to begin with repression and then slowly ease out of it so it’s not immediately suppressed by larger regimes? If from the start there is fanatical repression, how does one make sure that the body moves away from that template to create the real order of chaos? Or is there even a need to start docile and then ease into truth and hostility?
 
 ###### 10.6.2020
+## Note
 
-there's a bittersweet and yet not quite bitter and not quite sweet notion  that revolves around the end of me.
+there's a bittersweet and yet not quite bitter and not quite sweet notion that revolves around the end of me.
 
 ###### 09.13.2020
 ## Planes
