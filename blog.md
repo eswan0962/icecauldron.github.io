@@ -5,6 +5,11 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.10.2020
+## If I was Huntan
+
+The ultimate middle ground, the transitory state of being that allows you to go back and forth between the living and the idea of the end is becoming a reaper. Embodying a boatman who gives you coin to move on. By ferrying, you can ferry yourself. The balance of comfort and being a rigid fixture in the life of others. Prestige.
+
 ###### 10.12.2020
 ## Gutter Buddies
 
