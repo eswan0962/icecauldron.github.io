@@ -2,11 +2,18 @@
 A Personal and Anti-Personal Blog
 
 
+####### 08.11.2020
+## Ohio
+The air is moist and sweet and it feels as though I've never been here before. 
+Everything feels familiar, but is so different. Simpler, directed. Even food is comprised of a few elements without much variation from day to day.
 
-## 08.07.2020
+####### 08.07.2020
+## le fin
 You’re either going to leave me now, or leave me in death. Either way it’s happening. 
 
-## 07.27.2020
+####### 07.27.2020
+## blue gills and nunya
+
 my feet are glossed with decay and excrement of that which grows
 
 i keep my back toward the man-made gruff that turns and churns and plays with old fauna
