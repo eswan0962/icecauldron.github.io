@@ -1,12 +1,12 @@
-# HUNTAN THE MIDDLE GROUND
-Personal and Anti-Personal Blog
+# _ICE CAULDRON_
+A Personal and Anti-Personal Blog
 
 
 
-# 08.07.2020
+## 08.07.2020
 You’re either going to leave me now, or leave me in death. Either way it’s happening. 
 
-# 07.27.2020
+## 07.27.2020
 my feet are glossed with decay and excrement of that which grows 
 i keep my back toward the man-made gruff that turns and churns and plays with old fauna
 in an attempt to see and touch something ancient
