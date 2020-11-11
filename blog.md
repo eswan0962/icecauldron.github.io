@@ -5,41 +5,69 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.11.2020
+## Calibral
+
+Do i do a good job as i sit down and sob.. Do i sob for me or do i shatter for you.. How can i see that tattered umbrellla, a old red flag sitting in your work shop next too your tool box. The box is next to a pile of gold you carry within yourself. You manifest it onto your floor and keep it clear of dust and grime. And yet it is still on the floor. Every so often a girl in white comes through and takes a coin and tucks it safely under her breast in a little zipper that holds her disposable heart. Too bad that it is all worth it for the candied acorns they bring you in the coldest breath of winter dawns. Damp and shivering you stare into the frothing flames licking the sky. You can keep watching forever as it falls away. Sighing deeply you gather yourself at our lap, tapering inward at the middle but the husks on your mouth are still sharper than any knife. Every second, i can't stand to see you falling, there's not a next time. Musical dadaisms play on your limber and lithe mouth as you bark into the earth and the smallest critters come in mass to your aria. A small caterpillar molts in the corner and larger larvae crystallize and labor on. Crusts on the ground penetrated with the tidal wave of worms continually eating and re-eating their own shit. Where can I hide from your heart's jealous pyre?
+
 ###### in progress
 ## What you teach me
 
 > One place
+
 R: Vous are infinite
+
 D: Above all be a passionate fluid. Be adaptable and willing to see the good, bad, and middle ground in everyone. 
+
 L: Caring and experiencing the beauty and luxury of life is both a micro and macroscopic concept.
+
 K:
+
 E: Intent and decisions are your responsibility. Every action has an equal an opposite reaction. Clarity, empathy, and decisiveness are qualities to strive for.
+
 C:
+
 A: Compassion and sanctity for life and children. Statue of growth. 
+
 A: Goodness can be found anywhere by anyone. 
+
 J: Service and sacrifice for family comes above everything. Protector. 
+
 C: 
+
 B: Simplicity is as beautiful as a cornucopia of colors. 
 
 > Another Place
+
 A: Being part of something can be as big or as small as you want it to be. Once your part of me, there is no limit to that love and care on this two way messy road.
+
 S:
+
 L:
+
 T:
+
 E:
+
 A: In the end you can just do the best you can every day, growing, smiling, and snacking.
 
 > A Far Place
+
 O: Sympathy and humor. Emotions are here and we can handle them together. We are in this together.
 
 > The Furthest Place
-M: 
-D:
-N:
-P:
-T:
-E: 
 
+M: 
+
+D:
+
+N:
+
+P:
+
+T:
+
+E: 
 
 ###### 11.10.2020
 ## If I was Huntan
