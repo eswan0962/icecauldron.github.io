@@ -54,6 +54,7 @@ A: In the end you can just do the best you can every day, growing, smiling, and 
 > A Far Place
 
 O: Sympathy and humor. Emotions are here and we can handle them together. We are in this together.
+
 O: Follow through, trust, and action lead to connection. Communication and belief is shown through presence and beyond that is infinity.
 
 > The Furthest Place
