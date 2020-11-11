@@ -5,6 +5,24 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 10.12.2020
+## Gutter Buddies
+
+You have to be fanatic about everything and nothing. To be fanatic and empty and to get others to believe you, love you and want to move with you, you have to be active and accountable but allow for all outcomes. The failure of man however is then inability to see past structure and repetition... which is why nothingness is called to. Moment to moment variation is the actual rule and no creed beyond the responsibility of the body and laws of nature are dictitious (new word) to every interaction. Which federal laws are bendable enough to allow all advances lawful, and will the start of a new community need to begin with repression and then slowly ease out of it so it’s not immediately suppressed by larger regimes? If from the start there is fanatical repression, how does one make sure that the body moves away from that template to create the real order of chaos? Or is there even a need to start docile and then ease into truth and hostility?
+
+###### 10.6.2020
+
+there's a bittersweet and yet not quite bitter and not quite sweet notion  that revolves around the end of me.
+
+###### 09.13.2020
+## Planes
+
+My restriction is my perception that any other moment than this one exists. I stare out the plane and think... what if I died... what does that make me feel? I want to feel neutrally about it or even content... but I’m not. I’m dissatisfied because of what I believe I will miss. Something that doesn’t exists yet. An illusion where I am anticipating this wonderful thing that literally doesn’t exist, and neither does everything before it. My life before and my life after is neither here nor there... it’s not biological to be disappointed beyond the fact that I am no longer able to reproduce.. that is the singular reason to be at loss in this moment. When all I see is gray. Am I dead or dying or already at the space in between where the “you” that I am missing, as my plane goes down, doesn’t even know that you don’t exist either. 
+
+###### 08.28.2020
+## Note
+
+If it’s not this it’s something else. This is not a charity. We’ve all gone through something... everyone of us. And we are here to give you the extra of what we do have. Now I know you didn’t have the foolish idea that things are going to get better, because they aren’t. That’s not the lords way. 
 
 ###### 08.23.2020
 ## What does the dark say?
