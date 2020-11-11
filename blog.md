@@ -2,6 +2,18 @@
 A Personal and Anti-Personal Blog
 ESS
 
+###### 08.23.2020
+## What does the dark say?
+You are not alone,
+But because of this you must be (alone).
+Nothing is equal,
+And because of this you must choose.
+Love can be boundless,
+But because of this you must become
+                    comfortable with solitude.
+You will never lose anything you hold close,
+And because of this you will always hurt.
+
 ###### 08.11.2020
 ## Ohio
 The air is moist and sweet and it feels as though I've never been here before. 
