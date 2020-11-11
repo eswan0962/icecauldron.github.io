@@ -7,7 +7,7 @@ A Personal and Anti-Personal Blog
 You’re either going to leave me now, or leave me in death. Either way it’s happening. 
 
 ## 07.27.2020
-my feet are glossed with decay and excrement of that which grows 
+*my feet are glossed with decay and excrement of that which grows /n
 i keep my back toward the man-made gruff that turns and churns and plays with old fauna
 in an attempt to see and touch something ancient
 i behold something anew and more distant from me than i like to believe
