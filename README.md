@@ -53,24 +53,41 @@ i am the conflict,
 
 the fire that insights fear
 
-    and yet,
+and yet,
 
 you swim up to me as to say, "I've seen you a thousand times before." 
 
 welcome back.
+
 never been so close and felt so comforted by curiosity
+
 encircling me with inquisitive eyes,
+
 glossing over my dull, fleshy skin
+
 you must think me ugly 
+
 in comparison to you
+
 lithe, quick, and a symphony of 
+
 gold and silver
+
 sunlight refracting and reflecting off of you
+
 and onto me
+
 you're making me beautiful
+
 feasting on and 
+
 supping upon my flaky bits
+
 much more tender than your scales
+
 much less tender than your mind
+
 i am the predator 
-but i am  the one who is pierced 
+
+but i am  the one who is pierced
+
