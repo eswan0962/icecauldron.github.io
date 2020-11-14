@@ -5,6 +5,24 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.13.2020
+
+## Grafts
+
+By and by,
+
+I chew my thumb.
+
+Why oh why,
+
+do I chew my thumb?
+
+I sigh and sigh,
+
+still I chew my thumb,
+
+and little by little I die.
+
 
 ###### 11.12.2020
 ## Banal
