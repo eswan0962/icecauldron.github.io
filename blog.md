@@ -5,6 +5,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+
+###### 11.12.2020
+## Banal
+
+How can I grasp at that lingering sound of the implication that pleasuring me is taxing. I am a job. Not your words, but all of the generalized actions. That I am a performance to be seized. I feel this tearing of my eyes, the ripe persimmon that is my heart, and the cementation of my loins. My passion instantly cremated at nobodies feet. When you ask me if it’s okay or that you feel pressure to cum for me.. to perform for me... resolved to me is the true nature of us. My turgid fingers that quaked beneath you, crinkling into myself. You hate see me hurting.. you love me... it is not a reflection of your horniness.. I my vulnerability shrivels with each moment. I cannot brighten my eyes or sigh with honesty or gyrate without thought.. not when you reject me thus. And yet, I love you still. Enough to crumple next time and bloom your way tomorrow. 
+
 ###### 11.11.2020
 ## Calibral
 
