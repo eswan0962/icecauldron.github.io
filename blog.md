@@ -5,6 +5,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+
+###### 11.14.2020
+## What if that wasn't the case?
+
+Let's invite new possibility. What if it is okay to feel love? Lets bring those two bits together so they close. At the time I would have a front face. A sock puppet that pops out for me. Integrate it. Tiny subtle movements that shows the twisting and creates awareness. 
+
 ###### 11.13.2020
 ## Waterways
 
