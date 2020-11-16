@@ -8,7 +8,7 @@ ESS
 ###### 11.15.2020
 ## Nachos and Kosher Wine
 
-Really strict rules and incredibly bland foods. Its cute to think about bringing things together and make them connect, but my favorite thing to see. It really grinds my gears. Peppers my pot. Sprinkles my cupcake. Tickles my inflinitely wiggling pickles. Seeing two vastly opposing ideals or items or cultural phenomon come together in an awkward and beautiful hodgepodge. A delicate suprise you never would have surmised that brought out the utmost delight in you. The stroke of her thighs. The blight in her eyes. Proving that its never too much to be everything at the same time. 
+Really strict rules and incredibly bland foods. Its cute to think about bringing things together and make them connect, but my favorite thing to see... the plot that really grinds my gears. Peppers my pot. Sprinkles my cupcake. Tickles my inflinitely wiggling pickles. Seeing two vastly opposing ideals or items or cultural phenomenon come together in an awkward and beautiful hodgepodge. A delicate surprise you never would have surmised that brought out the utmost delight in you. The stroke of their thighs. The blight in its eyes. Proving that its never too much to be everything at the exact birth of nothing. 
 
 ###### 11.14.2020
 ## What if that wasn't the case?
