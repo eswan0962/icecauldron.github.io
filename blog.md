@@ -5,6 +5,11 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.16.2020
+## Gratuitous Acts
+
+Meeting you and you meeting me was always unforseen. And this happens over and over. We happen over and over. How can it be that the same things that give me joy, that make me feel good, that lift me up... across time and space. 8822 miles. I continually gather my people and they turn into proverbial gold so quickly. Its disproportionate and unrare that I feel that love from another, yet it suprises me so. I will see you soon my friend, for we were meant to be vast trees of structure and Light.
+
 ###### 11.15.2020
 ## Nachos and Kosher Wine
 
@@ -113,10 +118,33 @@ E:
 
 The ultimate middle ground, the transitory state of being that allows you to go back and forth between the living and the idea of the end is becoming a reaper. Embodying a boatman who gives you coin to move on. By ferrying, you can ferry yourself. The balance of comfort and being a rigid fixture in the life of others. Prestige.
 
+###### 10.16.2020
+
+Wild Bill helped me skin a coyote that New Light and I found in the desert. What and experience. I don’t think I can adequately describe it in words. So I guess I can just hope to remember it. I got blood all over the rental truck. A hunter shot the coyote and just left it for dead, and we just happened to find it. So I skinned the thing and threw its carcass in the desert. Brutal. Then we went to Grubstake down the road and I was still covered in coyote blood and smelled to high heaven. There were so many cowboys and country locals. The inquisitiveness about where we were from and our reason for being there were questioned, but then quickly we got invited to karaoke at the bar down the road. Old country music blared in the background with “Crazy Woman Ranch” swinging above the bathroom.
+
+I ran home with the galaxy and the sagey air and the wind at my back. I felt at home. 
+
+
+###### 10.15.2020
+
+My nostrils sting and the rest of the skin around that peaked and exposed flesh is also on fire. I walked four full lines today, which is a major success in my book. The first two days were a series of mistakes and lost GPS Signal. For breakfast Bill and Carmila made French Toast and told us these amazing stories of them hunting and trapping beaver and Bill wrestling a beaver in the river. They seem like really hospitable people, though they are definitely set in their conservative and generations of western frontier traditionalism. They show no mercy to rule breaking and poorly behaved grandchildren. In Meemaw’s country, her rules are the only rules… no asking why, just do it. I think I really want to learn how to hunt and catch my own game. Seems more honest, as Danica said. I keep getting in bed by like 8:00 pm, my shoulders are dying. Just like all those antelope during the current hunting season. Ouch, my face. Again, the galaxy shines gayly above. 
+
+###### 10.14.2020
+
+Today, I thought about much ado about nothing. I walked back and forth and up and down the 1 km lines for magnetism. They think that there is gold in that there hill. I think I want to take up hunting. I wonder, tehe, if any of my partners would like to join me? I’m not really keen on learning from people though, at least not with intension. I would much rather just figure it out along the way. I’m sure that I learn a lot less because of this stubbornness. I am a sunburnt lobster with wobbly knees and a wobbly disposition. I like that I don’t get service out here. This is one of the rare occurrences where I have talked to myself and had really no body else to transfix on and interrogate. I’ve had songs weaving in my head. I’ve been dealt a boon pair of new balances from a generous woman named Miss Carmilla. She is the matriarch of this hotel and her and Wild Bills’ hospitality has no bounds. I’m envious of their set up. I guess I better start investigating land since there is now room for negotiation... This I am excited for… mountain towns might be on the top of my list now. I am more immediately excited to hold my beloveds and sniff their pits.
+
+###### 10.13.2020
+
+I think it is possible to be content in the middle of nowhere, assuming that there is a plan for survival. Nearly 8 miles of walking across brush and metamorphic batholith affected rock and coming across the bodies of recently and long passed creatures and creatures that have not extinguished from their earthly frame. I imagined, among other things, that we could build a house with this stone.. at first meager, but over time would become strong and resolved. Enough to withstand the Wind River. My face is raw and gnashed from the wilderness’ gusts which containing grains of sand, sage, and the like. I thought about trying to achieve minimal satisfaction and found that the easiest way seems to be boredom and absence of thought… or some form of distain for comfort, but it’s not like I don’t want to be comfortable. It’s that I don’t want to notice one way or the other. I just want to be. But then my toes started to hurt and as the miles passed on, I could only think of how far until the end of the line and until I can feel parched enough to be desperate for water. Desperation for water is one of my favorite things. The singularity of the need is transfixing. I want to thirst for other things in this way. Soon I was in that zone of singing a song to myself, as per usual, and in pain and… oh look, a snake skin… and a rabbit whom I paid no mind other than to watch it watching me… o’ hark, the machine is beeping incessantly.. I need water. How far away from the car am I? Am I that desperate? Yes. Sit down and more sand in my eyes. Blood in my shoes. Stank in my crotch. The swirling cyan colors of the sky and dusky brown and green and oranges of the ground rob me of care. I resigned to the comfort of the desert or at least the anticipation of its gifts. Will need different shoes though. 
+
 ###### 10.12.2020
 ## Gutter Buddies
 
 You have to be fanatic about everything and nothing. To be fanatic and empty and to get others to believe you, love you and want to move with you, you have to be active and accountable but allow for all outcomes. The failure of man however is then inability to see past structure and repetition... which is why nothingness is called to. Moment to moment variation is the actual rule and no creed beyond the responsibility of the body and laws of nature are dictitious (new word) to every interaction. Which federal laws are bendable enough to allow all advances lawful, and will the start of a new community need to begin with repression and then slowly ease out of it so it’s not immediately suppressed by larger regimes? If from the start there is fanatical repression, how does one make sure that the body moves away from that template to create the real order of chaos? Or is there even a need to start docile and then ease into truth and hostility?
+
+## Tracing
+
+C’mon baby, c’mon darlin, let me steal this moment with you now. Today has been an immense day of personal reflection into my willingness into fanaticism and what I believe I must do to become jewish and Japanese and “intense” to believe in “something” or “nothing” completely. To give in to those endorphins of the moment. To not simply observe one’s self it its distracted and selfishly placated state but to pour… pour into the moment you bite into that apple, the moment you smell them walk by and the world narrows into a fine boney straw, the shear thrill of the crackling of your teeth as someone’s hand collides with your face. I want that. I want to work on that. To do that I need to be silent to hear myself and not just the script I puke around my art piece. To do that I will need to wallow in my ego and hubris as well as set fire to my disgusts orbiting those traits. To do that I will need to swell into my paralysis when I feel intensely. To do that I must train myself to associate paralysis with severe discontentment and want it to change. And to do that I must push myself to the cliff of discomfort and pleasantries and cleverness and trick myself into committing compartmentalization suicide. Drain my swamp of shame, regret, analysis, control… and keep draining without recharge. Like our aquifer. The clams will die and so will “the before”, but I guess then I will have it all. Like I’ve always wanted.
 
 ###### 10.6.2020
 ## Note
