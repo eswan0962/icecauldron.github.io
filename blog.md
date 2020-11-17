@@ -8,7 +8,7 @@ ESS
 ###### 11.16.2020
 ## Gratuitous Acts
 
-Meeting you and you meeting me was always unforseen. And this happens over and over. We happen over and over. How can it be that the same things that give me joy, that make me feel good, that lift me up... across time and space. 8822 miles. I continually gather my people and they turn into proverbial gold so quickly. Its disproportionate and unrare that I feel that love from another, yet it suprises me so. I will see you soon my friend, for we were meant to be vast trees of structure and Light.
+Meeting you and you meeting me was always unforeseen. And this happens over and over. We happen over and over. How can it be that the same things that give me joy, that make me feel good, that lift me up... across time and space. 8822 miles. I continually gather my people and they turn into proverbial gold so quickly. Its disproportionate and unrare that I feel that love from another, yet it surprises me so. I will see you soon my friend, for we were meant to be vast trees of structure and Light.
 
 ###### 11.15.2020
 ## Nachos and Kosher Wine
