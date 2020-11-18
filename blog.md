@@ -5,6 +5,11 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.18.2020
+## Self Flagellation
+
+I feel it in my diaphram, in my lower back, in my lungs. I feel it in my hands as they continue to open and close and I lose awareness of the sensations of that actual movement. I clench my jaw tighter and let it quiver beneath the weight of the rest of my skull. I hurt and the extensions of me hurts too. This is ideal. To feel anything is to be alive. Yet, slowly the numbness closes in, telling me to windmill in every direction within the confines of my shell. A breath in. A breath out. A knife in. A knife out. A double edged sword. Commit to one path or the next and be resolved in it. Be and do exactly what you want. Confinement is good for no soul.. even if a soul exists, the more you control or doubt or plan, the more inevidible disappointment becomes. Like holding a dog on a leash, you and the dog are both burdened and enslaved. Let go of the leash. Hit yourself not with the metal clasp. 
+
 ###### 11.16.2020
 ## Gratuitous Acts
 
