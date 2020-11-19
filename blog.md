@@ -9,15 +9,15 @@ ESS
 
 ## Note
 
-Hey there
+hey there
 
-this jaw pain is hard to manage
+thIs jaw pain is hard to manage
 
 still grinding at night
 
-can't really get up in the morning
+can't realLy get up in the morning
 
-don't really want to ever be awake 
+don't really want tO ever be awake 
 
 unless we are all together
 
@@ -37,13 +37,13 @@ accosting me ever so slightly
 
 its easy to withdraw inside
 
-but then vous knows i'm hiding
+but then Vous knows i'm hiding
 
-and i'm trying not to hide 
+and i'm trying not to hidE
 
-i lay myself in embers
+i lay mYself in embers
 
-   and still i try to not be burnt.
+   and still i try to nOt be bUrnt.
   
 dammit.
 
