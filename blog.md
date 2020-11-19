@@ -20,6 +20,15 @@ Inductive:
 
 Deductive:
 
+
+## German Expressionists (late 19th and early 20th century)
+
+basic motto : to produce art of the emotions, of frankness and intensity of feeling, and of the deeply personal and spiritual.
+--> Expressionists were in general opposition of the romanticism of society and disgusted by realism and literal representation. They prefered to address and create art and drama that was bortn out of viseral, emotional responses to a specific experience and not focus on the "subject" of that experience themselves. In drama/theater this created an evolved stage that seemed like broken fractals of thoughts and bursts of juxaposed tones. As is the experiences within my/vous mind, flitting from one thought to the other unceremoniously. Often times expressionist, formally naturalist, and futuristically surrealist, art was/is dense, primal, exaggerated, simplified and unrefined. 
+
+Before WWI German Expressionist wanted to revitalize the world of its stagnant academics and bourgeoisie expectations and make sense of the newly mechanised world. It is no surprise that after WWI the art would depict horrific stories of these artists experience. Apocolyptic energies and harems of political allegory would push forward additional political unrest throughout Europe and the world. 
+
+
 ## Where oh where did my (insert here) go?
 
 When I don't find your eyes on mine in a fashion that speaks of longing and want, I feel no relief. Why? The chain of events must've been: 1) I seek no refuge in anyone. I do not need someone to confirm my worth or validate me. Born from a specific kind of independance via upbringing. 2) All of a sudden, I have a space where I can explore dependancy and trust and distribute unconditionality. In addition, I am around new people whom I do not have locationally cultural similarity and I am easily influenced by their idealogies and emotions. As we all are. 3) I fall in love with them and bare my ever-changing soul to them. Then the cages around that person/energy become rusty and are put away.. I either start reacting like the people around me or become their essence... or did I become more comfortable... or have I always been this way? I can't remember... I suppose prior understandings, no matter what they are, no longer exist. While experience is a good predictor, events are not actually a good representation of the here and now and later of micromoments.. macromoments, sure.
