@@ -6,6 +6,20 @@ ESS
 
 -------------------------------------------------------------------------------------------------------------------------
 ###### 11.19.2020
+## The four and two
+
+Informal:
+
+Formal:
+
+Symbolic:
+
+Mathmatical:
+
+Inductive: 
+
+Deductive:
+
 ## Where oh where did my (insert here) go?
 
 When I don't find your eyes on mine in a fashion that speaks of longing and want, I feel no relief. Why? The chain of events must've been: 1) I seek no refuge in anyone. I do not need someone to confirm my worth or validate me. Born from a specific kind of independance via upbringing. 2) All of a sudden, I have a space where I can explore dependancy and trust and distribute unconditionality. In addition, I am around new people whom I do not have locationally cultural similarity and I am easily influenced by their idealogies and emotions. As we all are. 3) I fall in love with them and bare my ever-changing soul to them. Then the cages around that person/energy become rusty and are put away.. I either start reacting like the people around me or become their essence... or did I become more comfortable... or have I always been this way? I can't remember... I suppose prior understandings, no matter what they are, no longer exist. While experience is a good predictor, events are not actually a good representation of the here and now and later of micromoments.. macromoments, sure.
