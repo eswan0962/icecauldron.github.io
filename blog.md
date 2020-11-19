@@ -11,7 +11,7 @@ ESS
 
 Hey there
 
-this is jaw pain is hard to manage
+this jaw pain is hard to manage
 
 still grinding at night
 
