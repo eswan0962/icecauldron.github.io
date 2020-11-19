@@ -6,6 +6,48 @@ ESS
 
 -------------------------------------------------------------------------------------------------------------------------
 ###### 11.19.2020
+
+## Note
+
+Hey there
+
+this is jaw pain is hard to manage
+
+still grinding at night
+
+can't really get up in the morning
+
+don't really want to ever be awake 
+
+unless we are all together
+
+what happened
+
+i need a bit of help
+
+man, i hate that
+
+i can feel this slippery slope 
+
+this imaginary angle
+
+boxing me in 
+
+accosting me ever so slightly
+
+its easy to withdraw inside
+
+but then vous knows i'm hiding
+
+and i'm trying not to hide 
+
+i lay myself in embers
+
+   and still i try to not be burnt.
+  
+dammit.
+
+
 ## The four and two
 
 Informal:
