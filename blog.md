@@ -27,7 +27,7 @@ basic motto : to produce art of the emotions, of frankness and intensity of feel
 
 --> Expressionists were in general opposition of the romanticism of society and disgusted by realism and literal representation. They prefered to address and create art and drama that was born out of viseral, emotional responses to a specific experience and not focus on the "subject" of that experience themselves. In drama/theater this created an evolved stage that seemed like broken fractals of thoughts and bursts of juxaposed tones. As is the experiences within my/vous mind, flitting from one thought to the other unceremoniously. Often times expressionist, formally naturalist, and futuristically surrealist, art was/is dense, primal, exaggerated, simplified and unrefined. 
 
-Before WWI German Expressionist wanted to revitalize the world of its stagnant academics and bourgeoisie expectations and make sense of the newly mechanised world. It is no surprise that after WWI the art would depict horrific stories of these artists experience. Apocolyptic energies and harems of political allegory would push forward additional political unrest throughout Europe and the world. 
+Before WWI German Expressionist wanted to revitalize the world of its stagnant academics and bourgeoisie expectations and make sense of the newly mechanised world. It is no surprise that after WWI the art would depict horrific stories of these artists' experience. Apocolyptic energies and harems of political allegory would push forward additional societal unrest throughout Europe and the world. 
 
 
 ## Where oh where did my (insert here) go?
