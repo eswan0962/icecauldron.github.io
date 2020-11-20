@@ -6,8 +6,40 @@ ESS
 
 -------------------------------------------------------------------------------------------------------------------------
 
-
+###### 11.20.20
 ## Kilkenny Cat Plan (in progress)
+
+## Mantra
+
+I do not ask why
+
+It is enough to simply
+  
+   # be
+
+I do not ask why
+
+For that breaks the common, continuous step
+
+   # immediately 
+ 
+ I do not ask why
+ 
+ Lest diastasis set into every muscle and not just 
+ 
+   # the core
+ 
+ I must not ask why
+ 
+ But to "must" is to push against form
+ 
+ ....therefore
+ 
+ I do not ask 
+ 
+ In the name of infinite possibility
+ 
+
 
 ###### 11.19.2020
 
