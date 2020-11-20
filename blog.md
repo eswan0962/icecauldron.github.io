@@ -15,19 +15,19 @@ I do not ask why
 
 It is enough to simply
   
-   # be
+  __be__
 
 I do not ask why
 
 For that breaks the common, continuous step
 
-   # immediately 
+   __immediately__
  
  I do not ask why
  
  Lest diastasis set into every muscle and not just 
  
-   # the core
+   __the core__
  
  I must not ask why
  
@@ -39,6 +39,7 @@ For that breaks the common, continuous step
  
  In the name of infinite possibility
  
+
 
 
 ###### 11.19.2020
