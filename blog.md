@@ -10,16 +10,15 @@ ESS
 ## In spite of ourselves
 
 I have the most magical spirits that cover me in light.
-What have I to say that can appeal to the soft giving nature of your hand.
-In passion, in blood, in gentle cereal sighs.
-In my new ability to instantly be in love just because you do.
-And because of this
+What have I to say that can appeal to the soft giving nature of your hand?
+Passionate, bloody, and gentle cereal sighs drive my heartbeat for you.
+Marveling my new ability to instantly be in love just because you do.
+And because of this..
 I want to show you how unhappily happy i am. 
 I am not at peace with the treaturous heart betwixt by breasts. 
-I am boiling outward, becoming a noxious tombs.
+I am boiling outward, becoming a noxious tomb.
 How can I leave vous here?
 How can I be myself by staying?
-
 
 
 ###### 11.20.20
