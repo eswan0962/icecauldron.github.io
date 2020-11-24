@@ -5,6 +5,39 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.22.2020
+## Q & A
+
+_What gives me a deep and profound sense of joy?_
+
+Seeing my grandparents laugh together and at each other. Seeing how proud and strong my mother looks when she cries. The smell of my sex. Aggravating you. Doing the opposite of what is expected of me. Doing the exact thing that is expected of me. Becoming as emotionally destitute as theatre actors emersing themselves in Oedipus Rex during song. Eating pine needles and finding the best flavor. Hearing you quake beneath me. Knowing everything about people without them knowing that I know information they never directly told me. Inventing a feeling that I associate with colors or an order of events that create that feeling at any point in time. Watching the reaction of someone who is about to die as they die in another character's arms on television. 
+
+
+
+
+## NOTE
+Careful, careful 
+
+1,2,3
+
+They is we,
+
+we is they,
+
+and we start again tomorrow.
+
+Can it be so?
+
+... that those fingerlings of wheat braided along the trellis 
+
+were no more than an illusion
+
+when i write I feel silly
+
+I have an idea! 
+
+
+
 
 ###### 11.21.2020
 ## In spite of ourselves
