@@ -36,6 +36,10 @@ when i write I feel silly
 
 I have an idea! 
 
+I know how to take them down
+
+Thank you for the data
+
 
 
 
