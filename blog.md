@@ -9,7 +9,7 @@ ESS
 
 ## The fury of competition
 
-You impose on me and I can feel your poaching presence, and I feel an insignificant shift of my own ego trying to step down to let something pass by me... like parting the sea for moses. This will not do. I will not lay down and feel the wave of your transcendence and feigned ignorance. I will not let you come before me in anything. I will not come before you either, fear not. I do not seek to dethrone you. I want to be equals. Not as if there were truly different or unequal, I'm just "wasting" my talents on sleep, sex and the latter. I need to perpetuate the being I begrudgingly admire. Getting out of my own way and off of my own ass. Bogged down be damned. Damn you and damn me. _Madness. Madness. 
+You impose on me and I can feel your poaching presence, and I feel an insignificant shift of my own ego trying to step down to let something pass by me... like parting the sea for Moses. This will not do. I will not lay down and feel the wave of your transcendence and feigned ignorance. I will not let you come before me in anything. I will not come before you either, fear not. I do not seek to dethrone you. I want to be equals. Not as if there were truly different or unequal, I'm just "wasting" my talents on sleep, sex, and the latter. I need to perpetuate the being I begrudgingly admire. Getting out of my own way and off of my own ass. Bogged down be damned. Damn you and damn me. _Madness. Madness._
 
 
 
