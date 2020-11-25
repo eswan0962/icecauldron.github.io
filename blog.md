@@ -5,6 +5,30 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.25.2020
+
+## Q & A
+
+_What do I lose track of time doing?_
+
+
+
+## Opera songs for a mezzo soprano / contralto
+
+Must Winter Come so Soon from Vanessa (Barber)
+
+Voi che Sapete from Figaro
+
+Una Voce Poco Fa from The Barber of Seville
+
+Contralto Voices -
+
+When I am laid in earth (Purcell)
+
+(Wagner)
+
+
+
 ###### 11.22.2020
 ## Q & A
 
