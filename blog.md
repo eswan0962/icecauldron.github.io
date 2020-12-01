@@ -5,6 +5,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.30.2020
+
+## Playing with all of the senses
+
+A distant violin in my north left space of ear. A small, singular string that dances along my nerves back and forth in stoicastic, windy caverns. Wood explodes in on itself as it is burned to a crisp by the sustainer of man. Fire.. Fire... Burn through me. Burn within me. Soft yellow light plays tricks with me and by creating a chiaroscuro effect I am transfixed by my home. Soft burgundy petting my eyes with a treasury of caresses. Hard corners drawing lines in the sand of our world. Architecturally damaging the shapes of indeterminate foreverness. Structuring our minds to fit a collection of others like us. The orchestra conductor pulls all of our strings with is index fingers.. he calls them.. the brass coming in softly from the top of the ceiling and pouring along the gilded walls. Then Prince sexes me with God from Purple Rain and leaves me in a hot, drunken state. I divorce him for jazz club Brad.. unfortunately. I would rather hear the symphony of my life, cackling along with the fire I must tend to. Heated, thirsty, hellbent.
+
 ###### 11.25.2020
 
 ## The fury of competition
@@ -30,6 +36,7 @@ When I am laid in earth (Purcell)
 
 
 ###### 11.22.2020
+
 ## Q & A
 
 _What gives me a deep and profound sense of joy?_
@@ -68,6 +75,7 @@ Thank you for the data
 
 
 ###### 11.21.2020
+
 ## In spite of ourselves
 
 I have the most magical spirits that cover me in light.
