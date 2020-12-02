@@ -5,6 +5,45 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 12.02.2020
+
+Look at me out here. 
+
+Bask upon my tragedy.
+
+It's you.
+
+Hurting. Hurting. 
+
+One tear. Two tears. More.
+
+  and more.
+  
+Desolate and estranged.
+
+Period. 
+
+Trying to have no hard feelings.
+
+Three tears. 
+
+To be loved as well as I have
+
+  _is un-unique_
+  
+  but has been responsible for the nebula of my spirit.
+  
+Three lines of you on my face
+
+  and a fourth streak just for me.
+  
+Mourn your perfection and your anti-perfection.
+
+
+###### 12.01.2020
+
+foretrek.com
+
 ###### 11.30.2020
 
 ## Playing with all of the senses
