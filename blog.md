@@ -5,6 +5,26 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 12.08.2020
+
+## The Stout Part
+
+The smell of your skins. 
+
+So comforting to me. 
+
+Your hand gently touching mine. 
+
+So secure to me. 
+
+Your breathing and spinning. 
+
+Captivating my heavily laden heart. 
+
+What and who can emboss me with more?
+
+Than that which sees through me, into me, and amongst me. 
+
 ###### 12.02.2020
 
 Look at me out here. 
