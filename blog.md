@@ -19,11 +19,13 @@ and hear your voice. Even for a moment.
 
 I'd take any words to avoid... 
 
-   the Assyrian battering ram that hits my heart.
+   the Assyrian battering ram clouting my heart.
+   
+   Again and again.
    
 My Babylonian flesh ripples as each resounding parapet falls,
 
-and is half-hazardously restored by foot soldiers and slaves.
+   and is half-hazardously restored by foot soldiers and slaves.
 
 And yet we are disjointed and I still breath. But barely. 
 
