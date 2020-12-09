@@ -7,6 +7,35 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 12.08.2020
 
+## 609 BC
+
+When I am feeling blue,
+
+and it's about you.
+
+I need to witness your motion
+
+and hear your voice. Even for a moment.
+
+I'd take any words to avoid... 
+
+   the Assyrian battering ram that hits my heart.
+   
+My Babylonian flesh ripples as each resounding parapet falls,
+
+and is half-hazardously restored by foot soldiers and slaves.
+
+And yet we are disjointed and I still breath. But barely. 
+
+I sleep to get away from the hummingbird beating wildly about my rib cage.
+
+I believe you feel my dangerous grief, 
+
+and if you do not, you do not see. 
+
+And Assyria will fall.
+
+
 ## The Stout Part
 
 The smell of your skins. 
