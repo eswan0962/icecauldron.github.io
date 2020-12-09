@@ -11,7 +11,7 @@ ESS
 
 _What do I lose track of time doing?_
 
-It's actually really hard for me to lose track of time. Talking late in the night during a sleepover with my mom. Dealing with anxiety. Being high. Making love. Being with my people in a group setting. Walking anywhere and everywhere with my headphones in. Living and blooming during karaoke. Staring into someones eyes who I can reach in that way. Sitting in a hot shower. Watching fish swim. Having a dissociative attack. Shavasana. Tracing lines. Painting. 
+It's actually really hard for me to lose track of time. Talking late in the night during a sleepover with my mom. Dealing with anxiety. Being stoney. Making love. Being with my people in a group setting. Walking anywhere and everywhere with my headphones in. Living and blooming during karaoke. Staring into someones eyes who I can reach in that way. Sitting in a hot shower. Watching fish swim. Having a dissociative attack. Shavasana. Tracing lines. Painting. Thinking about death.
 
 ## 609 BC
 
