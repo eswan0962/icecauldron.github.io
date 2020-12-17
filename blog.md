@@ -5,6 +5,23 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+
+###### 12.17.2020
+
+## Q & A
+
+_How were failures treated in my upbringing?_
+
+There
+
+###### 12.16.2020
+
+## Note
+
+It’s in an air plane that I find my mind disrupted by micro absurdities. That I find myself annoyed and convulsing on our, your, and my horse shit. I believe conception of meaning holds the meaning and lack of belief. It’s hard for me to find importance in these mind games when life is at stake. Perhaps it’s been too comfortable. Perhaps that’s why you writhe so. Perhaps every piece of you that is on the ground continues to float on slowly morphing and not fast enough for my impatience. Perhaps my regression is baleful and full and inward. As you move forward without me. A usual secondary thought. Even though it’s not true. The pout feels true. I feel disadvantaged because we don’t have that ease, just the acceptance. 
+
+Can you see the theater and the bloodiness of my heart that you laugh at? Forgive me if I don’t laugh back. I think most things are unimportant except the representation of the human experience that the theater brings to life. Somehow better and more true than any interaction you and I may have on any passing day... any day that we continue to piss our time away being less than brilliant and expressive and severe.
+
 ###### 12.08.2020
 
 ## Q & A 
@@ -138,7 +155,6 @@ When I am laid in earth (Purcell)
 _What gives me a deep and profound sense of joy?_
 
 Seeing my grandparents laugh together and at each other. Seeing how proud and strong my mother looks when she cries. The smell of my sex. Aggravating you. Doing the opposite of what is expected of me. Doing the exact thing that is expected of me. Becoming as emotionally destitute as theatre actors emersing themselves in Oedipus Rex during song. Eating pine needles and finding the best flavor. Hearing you quake beneath me. Knowing the tiny details/movements about people without them knowing that I know information they never directly told me. Inventing a feeling that I associate with colors or an order of events that create that feeling at any point in time. Watching the reaction of someone who is about to die as they die in another character's arms on television. Being a monotone sass-monster back and forth with my dad. Holding my grandfather's hand. Sleeping next to my grandmother and having her tell me about her life's regrets, pain, happinesses, and triumphs. Smelling the wet earth clogging my nose as I squirm around in the mud like a bloody piglet fresh to the slaughter. Leftover Thanksgiving oyster dressing, mash taters, turkey, and most importantly cranberry sauce two days after the holiday. When Mr.Darcy asks Elizabeth to marry him in every Pride and Prejudice movie or series. Raisin Brand. Laughing maniackly without control. Sleeping outside and waking up to the crispness of a sore muscle and frost kissed toes. Taking an outside shower at the beachside rental with the sun beating down on me after sweating and absorbing the sun's fury for a few hours. Stepping outside of my mind and losing my humanity.
-
 
 
 
