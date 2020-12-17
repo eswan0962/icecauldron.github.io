@@ -12,7 +12,9 @@ ESS
 
 _How were failures treated in my upbringing?_
 
-There
+I grew up in a lower middle class household, or at least that was my perception. We constantly struggled for money, but I never really got to see that directly.. I just knew that I couldn't and wouldn't ask for lunch money. I knew that I would be given money if I asked, but I think without knowing the details, I new that we were living above our means.. therefore we lived in debt. When you live in a blue collar, slightly conservative, quasi-rural family, as I do, the most important or valued character traits are as follows: hardwork, loyalty, mental and spatial flexibility/resilience, dependability, and hypervigilance. This makes sense if you know me. Even now, as I look at the prefered merits of my mother, my father, and my grandparents, but not my friends, it is surprising to me that I am still fundamentally the same as them at my core. Even though the last few years of my life I have had vastly different life experiences from them, I still am a hyperaware ride-or-die, family-oriented workaholic (despite the laziness of 2020). 
+
+Because of this, failure in my upbringing looked like not doing anything or not bettering yourself or your loved ones through the use of your back and heart. There would always be a baseline love and acceptance, but disappointment of lack of individual performance was met with underhanded or blatant derision... followed by encouragement to get back on the ball. The real failure is not getting on the train again. I have never failed. 
 
 ###### 12.16.2020
 
