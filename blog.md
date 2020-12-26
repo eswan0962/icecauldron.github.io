@@ -7,6 +7,13 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 12.25.2020
 
+## Mesopotamian relgious phases
+
+Phase 1 (4000 BC) - deities mainly focus on basic human needs for survival./n
+Phase 2 (3000 BC) - the divine hierarchy became more structured./n
+Phase 3 (2000 BC) - the gods worshipped by an individual person and gods associated with peasants became more prevalent./n
+Phase 4 (1000 BC) - gods became closely associated with specific human empires and rulers./n
+
 ## Q & A
 
 _If I were a super villian what be my motive for villany? What would tempt me to that path? (If I believed in villanous acts)_
