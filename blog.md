@@ -5,6 +5,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 12.25.2020
+
+## Q & A
+
+_If I were a super villian what be my motive for villany? What would tempt me to that path? (If I believed in villanous acts)_
+
 
 ###### 12.17.2020
 
