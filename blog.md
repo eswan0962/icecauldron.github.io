@@ -30,7 +30,7 @@ __Enki/Enu__: God of the subterranean freshwater, wisdom, magic, incantations, a
    
 __Utu/Shamash__: Sun god and god of truth, justic, and morality. _Color: Gold, yellow_
 
-__Nanna-Suen(Sumerian)/Suen or Sin (Akkadian)__: God of the Moon and symbolyses the pleroma (i.e. the sum of all the gods powers (Anu himself). _Colors: Silver, green__
+__Nanna-Suen(Sumerian)/Suen or Sin (Akkadian)__: God of the Moon and symbolyses the pleroma (i.e. the sum of all the gods powers (Anu himself). _Color: Silver, green_
 
 <NOT COMPLETE>
 
