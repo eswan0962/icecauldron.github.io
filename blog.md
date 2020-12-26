@@ -7,12 +7,34 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 12.25.2020
 
-## Mesopotamian relgious phases
+## Mesopotamian relgious phases and affluent deities
 
-Phase 1 (4000 BC) - deities mainly focus on basic human needs for survival./n
-Phase 2 (3000 BC) - the divine hierarchy became more structured./n
-Phase 3 (2000 BC) - the gods worshipped by an individual person and gods associated with peasants became more prevalent./n
-Phase 4 (1000 BC) - gods became closely associated with specific human empires and rulers./n
+Phase 1 (4000 BC) - deities mainly focus on basic human needs for survival.
+
+Phase 2 (3000 BC) - the divine hierarchy became more structured.
+
+Phase 3 (2000 BC) - the gods worshipped by an individual person and gods associated with peasants became more prevalent.
+
+Phase 4 (1000 BC) - gods became closely associated with specific human empires and rulers.
+
+_Most important gods during all periods_
+
+__An/Anu__ (Sumerian/Akkadian): Sky-god whose major roles were alloting functions to other gods, being a decision-maker and progenitor. His decisions are unalterable. Later gods inherited his power as Enil and then Marduk. Longest worshipped. _Color: Luludanitu, red, white, and black_
+   --> Uraš is his consort, later taken by Ki(Sumerian)/Antu(Akkadian) (personification of earth) 
+
+__Enlil__ (Sumerian): God of wind, air, and earth and was a fractal transcendence of Anu. Seen as a benevolent, fatherly deity. _Color: Lapis lazuli/blue_
+
+__Enki/Enu__: God of the subterranean freshwater, wisdom, magic, incantations, arts, and crafts. _Color : Jasper/green_
+
+   _Seven gods who decree_
+   
+__Utu/Shamash__: Sun god and god of truth, justic, and morality. _Color: Gold, yellow_
+
+__Nanna-Suen(Sumerian)/Suen or Sin (Akkadian)__: God of the Moon and symbolyses the pleroma (i.e. the sum of all the gods powers (Anu himself). _Colors: Silver, green__
+
+<NOT COMPLETE>
+
+
 
 ## Q & A
 
