@@ -45,7 +45,15 @@ __Utu/Shamash__: Sun god and god of truth, justic, and morality. _Color: Gold, y
 
 __Nanna-Suen(Sumerian)/Suen or Sin (Akkadian)__: God of the Moon and symbolyses the pleroma (i.e. the sum of all the gods powers (Anu himself). _Color: Silver, green_
 
-<NOT COMPLETE>
+__Nergal__: God associated with the underworld and forest fires, fevers, plagues, and war. _Color : Iron, red_
+
+__Nabu__: God of scribes and writing and later associated with wisdom and agriculture. Associated with Mercury. _Color : Orange_
+
+__Marduk__: National god of the Babylonians and eventually parallelled the renound and respect of Enlil as the chief of the gods. _Color : Tin, white_
+
+__Inanna/Ishtar__: Sumerian goddess of love, sexuality, prostitution, and war. Associated with Venus, the morning and evening star. The Sumerians had more myths about her than any other deity.Her most famous myth is the story of her descent into the Underworld, in which she attempts to conquer the Underworld, the domain of her older sister Ereshkigal, but is instead struck dead by the seven judges of the Underworld. She is only revived due to Enki's intervention and her husband Dumuzid is forced to take her place in the Underworld.Alongside her twin brother Utu, Inanna was the enforcer of divine justice. _Color : Copper, blue_
+
+__Ninurta__: Warrior deity worshipped in Sumer in the earliest of times. He was the champion of the gods against the Anzû bird after it stole the Tablet of Destinies from his father Enlil and, in a myth that is alluded to in many works but never fully preserved, he killed a group of warriors known as the "Slain Heroes". Ninurta was also an agricultural deity and the patron god of farmers. In the epic poem Lugal-e, he slays the demon Asag and uses stones to build the Tigris and Euphrates rivers to make them useful for irrigation. His major symbols were a perched bird and a plow. _Color : Lead, black_
 
 
 
