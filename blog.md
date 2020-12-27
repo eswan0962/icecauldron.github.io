@@ -5,6 +5,19 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 12.27.2020
+
+## Four Principles of Stoicism to Cultivate an Iron Will
+
+1. Find wise people to emulate.
+
+2. Review the implications of your day.
+
+3. Your distractions are your own doing.
+
+4. Every day is a new life.
+
+
 ###### 12.25.2020
 
 ## Mesopotamian relgious phases and affluent deities
