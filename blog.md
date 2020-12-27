@@ -20,7 +20,7 @@ ESS
 
 ###### 12.25.2020
 
-## Mesopotamian relgious phases and affluent deities
+## Mesopotamian religious phases and affluent deities
 
 Phase 1 (4000 BC) - deities mainly focus on basic human needs for survival.
 
