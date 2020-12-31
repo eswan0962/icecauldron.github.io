@@ -21,9 +21,9 @@ I can remember a time before,
 
 but I shouldn't.
 
-Because I am brawnier now,
+Because I am brawnier _NOW_,
 
-and _NOW_ is all.
+all in all.
 
 
 ###### 12.27.2020
