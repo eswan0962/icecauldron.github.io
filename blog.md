@@ -5,6 +5,27 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 12.31.2020
+
+## Modes of Survival
+
+I didn't have to be alone,
+
+and I wasn't.
+
+It didn't have to be rigorous,
+
+but it was.
+
+I can remember a time before,
+
+but I shouldn't.
+
+Because I am brawnier now,
+
+and _NOW_ is all.
+
+
 ###### 12.27.2020
 
 ## Four Principles of Stoicism to Cultivate an Iron Will
