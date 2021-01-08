@@ -5,6 +5,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 01.08.2021
+
+## Thoughts
+
+Each time I tell myself of my plan, while I whole-heartedly believe in my ability to stay true to vous, I crumble a little inside knowing that there will be unforseen circumstances that lead to my schedule's general distruction. Which I suppose can be solved by not affording a schedule at all. But this is near impossible because I don't have spatial convenience or a declarative home.. other than the fact everywhere is my home. I feel this tug to sit still for a while... but I also feel this tug to sit for a month, then jump off a building, then sit, then leap, then sit, then emerse myself in unfamiliarity.. then whatever. Being without you feels like a misery. 
+
 ###### 12.31.2020
 
 ## Modes of Survival
