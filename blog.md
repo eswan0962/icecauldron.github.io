@@ -13,6 +13,10 @@ Power. Welcome to the ring. It unlikely that you are immune to its alluring gaze
 
 Everyone wants their piece. Small pieces = commodities. Medium pieces = hearts, land, space. Large pieces = nations of creatures, the ocean. I have my fair share of small and medium pieces. I am a piece of a larger piece and my spaces, fractions of a whole. The larger pieces have ripples of insurgence within them. Tumors. Lights. Tomorrows unpromised promise of change and mutation and adaptation and conquered pieces.
 
+I'm not ashamed of other's power as long as it serves me and my power. This is an egregious, mundane reaction. I exercise power through careful and careless thought and I believe the outcome is largely the same on the medium and large scales. It is in medium scales that we have the most impact on the individual. It is in the small scales that we have most grief with ourselves and strangers. It is on the large scales where we find our way into a book probably.. the last pages of the story lead to an untimely demise... the dream/curiosity stolen/shattered by others who want their big idea to be the large scale's driving force. 
+
+I'll tell you what. Shooting for the large piece of power leaves you in excess or absence of anything in a category below it. You will lose your autonomy. You will likely lose your medium pieces (given that they are hearts) -- because these people have their own power to wield. What you gain must be worth it in your head.. what you're sacrificing must be worth it in your head.. But predictive behavior of most human beings show that they would rather have medium pieces (small communities) over a larger piece (social control). 
+
 ###### 01.08.2021
 
 ## Thoughts
