@@ -5,6 +5,16 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 01.28.2021
+
+## A flailing flail
+
+I am a full human, and this is why I grieve. A constantly illustrated and meditated over experience...over and over and over and over and again.. are you exhausted yet? I am a being loved too well. Where others may deteriorate from loneliness, I agonize over not being able to maintain my fractionized space. My desire is fed by their pain and their life blood pouring into me. I am a constant amputee. And here I flail. One arm holding the other in longpoint guard. Make your move. Given the choice, which I have, I suppose I wouldn't change where I am. I am confident as everyone else was/is... that I will lose you... mom.. dad.. nana.. papa.. tabby.. ray... danica.. ace... katie.. luigi.. e... moose.. chinzo.. t.. l... stephen.. olga... brandon.. alicia.. aisha.. chris.. anna.. to name only a few and in no particular but also a particular order. 
+
+Unfortunately and fortunately, the handicap you give me makes me stronger but leaves me partially resolved. Again truncated in both mind and spirit. 
+
+I want to use beautiful worlds and colorful descriptions to project my woe. But I feel shut off. Unaware, discontinuous color comes to me. Just broken iridecent glass resting upon my skin.. refracting my thoughts and people inside me in different directions. A kaleidoscopic amputee full of love. How lucky I am.
+
 ###### 01.13.2021
 
 ## It's the thing you will always bleed over
