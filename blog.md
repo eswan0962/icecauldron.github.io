@@ -5,6 +5,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 01.30.2021
+
+## Things that have been annoying me lately
+
+When people feel the need to constantly talk about things they've done. Validation of individual coolness through self-deprication. When people say, "I don't know, man. I'm just trying to do (insert here)." which shut me down. People's needs to have ownership over identities and "things". When people want to dig into my feelings.
+
 ###### 01.28.2021
 
 ## A flailing flail
