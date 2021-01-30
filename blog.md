@@ -9,7 +9,7 @@ ESS
 
 ## Things that have been annoying me lately
 
-When people feel the need to constantly talk about things they've done. Validation of individual coolness through self-deprication. When people say, "I don't know, man. I'm just trying to do (insert here)." which shuts me down. People's needs to have ownership over identities and "things". When people want to dig into my feelings. to be cont.
+When people feel the need to constantly talk about things they've done as a validation of individual coolness and worth. Self-deprication. When people say, "I don't know, man. I'm just trying to do (insert here)." which shuts me down when I am desiring a specific explanation. Needs to have ownership over identities and appreciation of specific "things". When people want to dig into my feelings when I haven't seen my way through them yet. When people don't show up on time. Choking when I am trying to communicate. Failing at explicitness. My own stubbornness. The withdraw I feels like it's translating into disbelief. My desire to escape being so strong. Not living with a romantic partner. Struggle to decide a 1 year path. Any form of extremism. The phrase "I am all alone in X,Y,Z". Competition outside of gaming. Split communities.  to be cont.
 
 ###### 01.28.2021
 
