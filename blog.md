@@ -7,6 +7,10 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 01.30.2021
 
+## 
+
+The feathery hands clasp over the river's mouth. Joining the woes and the wannabes to their channel.. filing them down into the water.. around and around they become the cataclysm at the surface, but if thesee jabberwocks were to dive below the rocks and sand they might find peace in their bludgeoning. Beetles skirt the surface of the tide pools, hungry for a bit of the action, but hesitant to test their cohesion. Each step they don't take is an opportunity missed. They don't get to kiss one another on the banks, because they are looking at the whirlpool before them. Betwixt them. Beneath them. Not to mention that their little beetle body is as rigid as the surface of a piece of paper (if you look hard enough or use an scanning electron microscope (SEM)). There are 4 beings before me and a million beings within me.. and they all have their own little channel meandering around many little trees. Eggs roll. Bass lines heed my warning blood pressure spike. My chest is a neutron star and there is no avail when I look directly at it.
+
 ##  Annoyances
 
 When people feel the need to constantly talk about things they've done as a validation of individual coolness and worth. Self-deprication. When people say, "I don't know, man. I'm just trying to do (insert here)." which shuts me down when I am desiring a specific explanation. Needs to have ownership over identities and appreciation of specific "things". When people want to dig into my feelings when I haven't seen my way through them yet. When people don't show up on time. Choking when I am trying to communicate. Failing at explicitness. My own stubbornness. The withdraw I feels like it's translating into disbelief. My desire to escape being so strong. Not living with a romantic partner. Struggle to decide a 1 year path. Any form of extremism. The phrase "I am all alone in X,Y,Z". Competition outside of gaming. Split communities.   to be cont.
