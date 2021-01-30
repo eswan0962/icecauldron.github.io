@@ -9,7 +9,7 @@ ESS
 
 ## Things that have been annoying me lately
 
-When people feel the need to constantly talk about things they've done. Validation of individual coolness through self-deprication. When people say, "I don't know, man. I'm just trying to do (insert here)." which shut me down. People's needs to have ownership over identities and "things". When people want to dig into my feelings. to be cont.
+When people feel the need to constantly talk about things they've done. Validation of individual coolness through self-deprication. When people say, "I don't know, man. I'm just trying to do (insert here)." which shuts me down. People's needs to have ownership over identities and "things". When people want to dig into my feelings. to be cont.
 
 ###### 01.28.2021
 
