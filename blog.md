@@ -7,7 +7,7 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 01.30.2021
 
-## 
+## moonbeam stream saga
 
 The feathery hands clasp over the river's mouth. Joining the woes and the wannabes to their channel.. filing them down into the water.. around and around they become the cataclysm at the surface, but if thesee jabberwocks were to dive below the rocks and sand they might find peace in their bludgeoning. Beetles skirt the surface of the tide pools, hungry for a bit of the action, but hesitant to test their cohesion. Each step they don't take is an opportunity missed. They don't get to kiss one another on the banks, because they are looking at the whirlpool before them. Betwixt them. Beneath them. Not to mention that their little beetle body is as rigid as the surface of a piece of paper (if you look hard enough or use an scanning electron microscope (SEM)). There are 4 beings before me and a million beings within me.. and they all have their own little channel meandering around many little trees. Eggs roll. Bass lines heed my warning blood pressure spike. My chest is a neutron star and there is no avail when I look directly at it.
 
