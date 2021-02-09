@@ -5,6 +5,50 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 02.09.2021
+
+I have three friends
+
+They sway in the wind beside one another
+
+They are constantly looking in my window
+
+and they gaze at me deeply
+
+or I like to think they do
+
+   with their frigid arms
+
+laden with cones and needles and frost
+
+so much warmer to me than the rafters of the house
+
+   that shelter my scalp from the rain
+
+keeping me truly warm
+
+micromovements remind me of the tension within them
+
+   a vertical face standing firm against a horizontal gust
+
+occasionally protecting the other
+   
+   depending on the flow direction of the impudent paroxysms
+   
+maybe one day they will be plucked from their roots 
+   
+   and separated from one another
+
+to be spread to the four winds
+
+   and grow again
+      
+      elsewhere
+
+to look deeply at someone else
+
+   through a thin pane of glass
+
 ###### 02.03.2020 
 
 ## moonbeams of times passed
