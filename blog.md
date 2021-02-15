@@ -5,6 +5,10 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 02.15.2021
+
+I wonder, how many snowflakes would be equivalent to the number of living organisms over the course of Earth's lifespan? And then what can be considered an organism... really. All life is composed of the non-living atom. But how does that work. Why does that work? One day you are an element and the next day you are a bunch of chemicals sending signals to one another. Peacocking. The self. The next thing. The actions that give us orders to eat creep and evolve. The same that can see the patterns in the frosted flakes as they cover the world. Each one, amiss and floating about stoicastically.. We do much of the same... But even the thickest blizzard will leave you with a smooth, patterned blanket. Even millions of snowflakes, each identical... will fall into the same woolen textile. The self the sun for the signature sign that there ARE more triangles inside the box. 
+
 ###### 02.09.2021
 
 I have three friends
