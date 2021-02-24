@@ -5,6 +5,28 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 02.24.2021
+
+## Things that are strong in me right now (in order)
+
+1. Completion of contractual obligations (job(s), lease, paper, etc.)
+
+
+   - However, two of these help me avoid things further down in the list. An umbrella feeling to cover a less strong or more strong feeling.
+
+
+2. Desire to be around bio-family (this combines with number 3 intimately)
+
+3. Escapism (of? my current socio-political-living-relationship space in Moscow/Pullman)
+
+4. Ignoring the paths of those around me, as I see them likely not aligning with me for the short-term (1 - 2 years)
+
+5. Desire for isolationist behavior/not being a team player
+
+6. Detachment of feelings from individuals to protect myself
+ 
+7. Genuine joy
+
 ###### 02.15.2021
 
 I wonder, how many snowflakes would be equivalent to the number of living organisms over the course of Earth's lifespan? And then what can be considered an organism... really. All life is composed of the non-living atom. But how does that work. Why does that work? One day you are an element and the next day you are a bunch of chemicals sending signals to one another. Peacocking. The self. The next thing. The actions that give us orders to eat creep and evolve. The same that can see the patterns in the frosted flakes as they cover the world. Each one, amiss and floating about stoicastically.. We do much of the same... But even the thickest blizzard will leave you with a smooth, patterned blanket. Even millions of snowflakes, each identical... will fall into the same woolen textile. The self the sun for the signature sign that there ARE more triangles inside the box. 
