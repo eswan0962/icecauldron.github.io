@@ -5,6 +5,63 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+
+###### 03.07.2021
+
+## This organ is so full.. it drowns itself
+
+here
+
+there
+
+everywhere
+
+i hold you closely,
+
+clinging..
+
+clinging..
+
+desperately inhaling the scent of you
+
+the scent of this moment
+
+   and
+
+gone 
+      as quickly as it came
+
+but i remember it
+
+my mom's smell and voice
+
+my nana's smell... much like my own
+
+my dad's polyester BO, so rich it crinkles my nose
+
+they don't smell like that kind of sweat out here
+
+that kind of pattern of joy
+
+that kind of tattered togetherness
+
+but i still smell you my local sweet beasties
+
+my loves
+
+i suppose i must go my own way
+
+   but your cries do not go unheard
+   
+   they blow roughly against my skin
+   
+   soaking my armour in roughened thick sand
+   
+   rubbing me raw
+   
+   my cup runneth over
+   
+
 ###### 02.24.2021
 
 ## Things that are strong in me right now (in order)
