@@ -39,13 +39,13 @@ my nana's smell... much like my own
 
 my dad's polyester BO, so rich it crinkles my nose
 
-they don't smell like that kind of sweat out here
+they don't ooze that kind of sweat out here
 
-that kind of pattern of joy
+that kind of pattern of familiar joy
 
 that kind of tattered togetherness
 
-but i still smell you my local sweet beasties
+but i still know your bouquet, my local sweet beasties
 
 my loves
 
