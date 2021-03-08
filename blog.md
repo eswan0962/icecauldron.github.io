@@ -6,6 +6,12 @@ ESS
 
 -------------------------------------------------------------------------------------------------------------------------
 
+###### 03.08.2021
+
+## The Blockade
+
+If you've ever seen a beetle create a burrow, it will charge forward repeatedly, kick the rubble that it encounters with its back legs, and go so far into the substrate as to fully submerge itself. Hereby becoming unseen and invisible to passers by. Most beetles take care to always drag the debris to the outside of their caves, they take the extra step to build a fort, like a glacial moraine, protecting the most vunerable section of their dwelling. My kind of beetle seems to allow the the debris they encounter to block the escape or start point of their burrow. Here the beetle is left in the darkness and safety of the den. They breathe stagnating air and are unable to to charge much further, lest they continue piling rocks and dirt in front of what use to be the entrance.. perhaps they do not know the direction they came from. It's more likely that they never cared in the first place what they left in their wake.
+
 ###### 03.07.2021
 
 ## This organ is so full.. it drowns itself
