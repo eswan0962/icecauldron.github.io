@@ -12,7 +12,8 @@ ESS
 
 ###### 03.15.2021
 
-                                                {% include googleDrivePlayer.html id=page.driveId %}
+
+{% include googleDrivePlayer.html id=page.driveId %}
 
 
 ###### 03.08.2021
