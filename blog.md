@@ -10,11 +10,15 @@ ESS
 
 -------------------------------------------------------------------------------------------------------------------------
 
+## What do I beat myself up most for
+
+THE NO: causing disappointment in an expectation of me, not being able to hold it together, not being able to communicate and responding by shutting down, failing in localized emotional durability, not being able to solve or mediate a puzzle/problem, not being able to brush all things off, lack of focus
+
+THE KINDER YES: ?
+
 ###### 03.15.2021
 
-
 {% include googleDrivePlayer.html id=page.driveId %}
-
 
 ###### 03.08.2021
 
