@@ -1,3 +1,7 @@
+---
+driveId: 1ZsUs4bf1-t8aDsyesDiFnW-oS0x5Natl
+---
+
 A Personal and Anti-Personal Blog
 
 -------------------------------------------------------------------------------------------------------------------------
@@ -8,10 +12,22 @@ ESS
 
 ###### 03.15.2021
 
+<!-- Feel free to change the width and height to your desired video size. -->
+
+<div class="embed-container">
+  <iframe
+      width="640"
+      height="480"
+      src="https://drive.google.com/file/d/1ZsUs4bf1-t8aDsyesDiFnW-oS0x5Natl/preview"
+      frameborder="0"
+      allowfullscreen="">
+  </iframe>
+</div>
+
 ---
 driveId: 1ZsUs4bf1-t8aDsyesDiFnW-oS0x5Natl
 ---
-{% include google_drive_player.html id=page.driveId %}
+{% include googleDrivePlayer.html id=page.driveId %}
 
 
 ###### 03.08.2021
