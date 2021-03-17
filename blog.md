@@ -10,7 +10,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
-{% include googleDrivePlayer.html id=page.driveId %}
+###### 03.17.2021
+## Deciding to be my own therapist
+
+{% include googleDrivePlayer1.html id=page.driveId %}
+
+###### 03.15.2021
 
 ## What do I beat myself up most for
 
@@ -18,9 +23,7 @@ THE NO: causing disappointment in an expectation of me, not being able to hold i
 
 THE KINDER YES: ?
 
-###### 03.15.2021
-
-{% include googleDrivePlayer.html id=page.driveId %}
+{% include googleDrivePlayer0.html id=page.driveId %}
 
 ###### 03.08.2021
 
