@@ -10,6 +10,7 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+{% include googleDrivePlayer.html id=page.driveId %}
 
 ## What do I beat myself up most for
 
