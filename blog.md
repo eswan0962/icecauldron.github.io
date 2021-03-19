@@ -1,6 +1,7 @@
 ---
 driveId: 186-UW9pLp8I8kjpvm_NAn9vM-ZL1CwQ2
 driveId: 1-nwuAHKS_LYI6mtm30eHdf5CwJvxr1QT
+driveId: 1ju4u_dY0bMiZuMxDqUENhxfAx18OwcCc/preview
 ---
 
 A Personal and Anti-Personal Blog
@@ -10,6 +11,10 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 03.19.2021
+
+{% include googleDrivePlayer2.html id=page.driveId %}
+
 ###### 03.17.2021
 ## Deciding to be my own therapist
 
