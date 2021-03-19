@@ -21,7 +21,7 @@ ESS
 
 THE NO: causing disappointment in an expectation of me, not being able to hold it together, not being able to communicate and responding by shutting down, failing in localized emotional durability, not being able to solve or mediate a puzzle/problem, not being able to brush all things off, lack of focus, believing that I have to shoulder things alone
 
-THE KINDER YES: ?
+THE KINDER YES: often times people care more about your well-being than there own, be kind enough to welcome their care and do not be deceived by your own precocious pride, people are willing to let you not hold it all together... in fact they may prefer it.. even if you've convinced yourself that they can't handle it, when you shut down you are in processing... do not be so hard on yourself to have the answers right then, do not put so much pressure on this pedestal you hold yourself on... everything is a Titanic, puzzles can solve themselves and mediation is your own choice... so choose, you aren't a hair brush so stop trying to be one, when you lack focus is when you are the most imaginitive, being alone is fun.. but being able to trust someone with the burden is also fun.
 
 {% include googleDrivePlayer0.html id=page.driveId %}
 
