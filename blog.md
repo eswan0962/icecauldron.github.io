@@ -14,7 +14,8 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 03.19.2021
 
-{% include googleDrivePlayer2.html id=page.driveId %} {% include googleDrivePlayer2b.html id=page.driveId %}
+{% include googleDrivePlayer2.html id=page.driveId %} 
+{% include googleDrivePlayer2b.html id=page.driveId %}
 
 ###### 03.17.2021
 ## Deciding to be my own therapist
