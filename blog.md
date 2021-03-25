@@ -13,6 +13,12 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 11.13.2020 
+
+## Waterways
+
+there's a light cold upon my back, you sweet crested dandelion. taking me through willowy branches, like the spitting snap of a leaf in the wind. beaten upon my exfoliated young, and yet youngening face. the fog crawling up my tender neck. flicking up spindles of water upon my face. frosting upon my lips a nucleated measure of sustenance. i am hear and supping upon the complex coronary of my anguish. crawling down my throat i pack the churned soil on top of my skin. covering my form from the world. moss. peat. slugs. they camouflage me.
+
 ###### 03.24.2021
 
 {% include googleDrivePlayer3.html id=page.driveId %}
