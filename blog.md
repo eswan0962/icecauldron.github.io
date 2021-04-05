@@ -54,7 +54,7 @@ Secondary only to food and thirst
 
 A canned longing left shelved
 
-Perhaps the pining is over rehearsed.
+Perhaps the pining is overrehearsed
 
    Bellow
    
