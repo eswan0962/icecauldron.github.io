@@ -18,6 +18,64 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 04.05.2021
 
+Keep pumping to your epicenters
+
+Keep pumping to your limbs
+
+Don't don a garish facade
+
+Provoking a balanced whim
+
+	See
+   
+The air is thin up here
+
+Expect not a careless pace
+
+Your hands are withering friend
+
+and so is our pretty face
+
+	Face yourself
+   
+All things die before you
+
+bleeding and conjured magnificently
+
+to never stop from the shrouding 
+
+protected from all matters munificently 
+
+	Grief
+   
+As necessary as perspiration 
+
+Secondary only to food and thirst 
+
+A canned longing left shelved
+
+Perhaps the pining is over rehearsed.
+
+   Bellow
+   
+Break and hold the beholden sigh
+
+As that which is love's beckoning 
+
+Passing you by just so
+
+Reckoning, Reckoning, Reckoning
+
+	Hold fast
+   
+But hold nothing too tightly
+
+Drink wine and regret not beer
+
+Kiss them even without their love
+
+Forever is the greatest lie taught here
+
 ## Feeling like a wombman
 {% include googleDrivePlayer6.html id=page.driveId %}
 
