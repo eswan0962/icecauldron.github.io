@@ -26,7 +26,7 @@ Don't don a garish facade
 
 Provoking a balanced whim
 
-	See
+   See
    
 The air is thin up here
 
@@ -36,7 +36,7 @@ Your hands are withering friend
 
 and so is our pretty face
 
-	Face yourself
+   Face yourself
    
 All things die before you
 
@@ -46,7 +46,7 @@ to never stop from the shrouding
 
 protected from all matters munificently 
 
-	Grief
+   Grief
    
 As necessary as perspiration 
 
@@ -56,7 +56,7 @@ A canned longing left shelved
 
 Perhaps the pining is over rehearsed.
 
-   	Bellow
+   Bellow
    
 Break and hold the beholden sigh
 
@@ -66,7 +66,7 @@ Passing you by just so
 
 Reckoning, Reckoning, Reckoning
 
-	Hold fast
+   Hold fast
    
 But hold nothing too tightly
 
