@@ -74,7 +74,7 @@ Drink wine and regret not beer
 
 Kiss them even without their love
 
-Forever is the greatest lie taught here
+For forever is the greatest lie taught here
 
 ## Feeling like a wombman
 {% include googleDrivePlayer6.html id=page.driveId %}
