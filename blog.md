@@ -18,16 +18,7 @@ ESS
 -------------------------------------------------------------------------------------------------------------------------
 ###### 04.07.2021
 
-## mean
 
-You're all big babies and i'm embarrassed of you. stop crying all the time and driving me down with you. can you not just hold it in for just a damn second to go to a corner and cut that diseased piece of yourself out and come back with certain composure. we all have shit that is being shit upon our mouth holes and we are all just trying to feel alive, and get by, and be at peace, and sectionally content. It's all beautifully terrible and I wish I could just be alone. I want to hurt you, so you can know what it is like to actually hurt. Not saying that I could even show you what actual hurt is, and not so say that you don't already feel actual hurt, but I do believe there to be degrees of tolerance and that running wild with these feelings doesn't produce affective blooming. I don't want your help. I don't want your help. I don't want your tears. I don't want your fear. I don't want your pining. I don't want your love or your smiles or your prodding questions. I don't want it, but I don't know what I would do without them. That is a pleasant darkness that I tell myself to seem more poetic or more real but its just a fucking lazy encounter with wanting to be wholesome when I want to be mute. 
-
-## middled
-
-Haha I must be going through something that I can't pinpoint. refer to above. or below. they are the same message.
-
-## nice
-Maybe it is today, or maybe it's the thousands of data points that have lead to today, but I think I can comfortably say (and to comfortably say is to imply sureness), that I wouldn't trade who I am for anybody. Be that irksome, it is true. Not discounting that I literally cannot even pretend to do anything about it. I wouldn't, I shouldn't, and I literally couldn't imagine myself, moment-to-moment, in someone else's life or essence (minus intentional empathy, of course). This, of course, does not mean I do not suffer or grieve.. I think a lot of people equate strife and sadness and "negative" experience to be a personal failing or self doubt. I do not. How sweet it is to be loved by me.
 
 ###### 04.05.2021
 
