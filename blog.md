@@ -17,6 +17,114 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+
+
+###### 04.14.2021
+
+## A dull reveal
+
+I lied on accident
+
+When I said I was clamming up
+
+I fibbed on purpose 
+
+When I was sure I could hold my chess pieces high
+
+I bent the truth
+
+When I smiled at you this morning
+
+I am convinced 
+
+When you look at me,
+
+I need not speak on
+
+How I am..
+
+For as I create a perverse calamity
+
+The foundational rupture has already initiated
+
+So to avoid the masked verbs
+
+Watch 
+
+where my skin twitches
+
+Watch
+
+My eyebrows furrowing as you sleep
+
+Watch
+
+The disconnected electricity between my retina and my teeth
+
+Watch
+
+My dwindling nails on my ashen hands
+
+Watch 
+
+my irritations at the mailbox's emptiness
+
+Watch 
+
+My physical disarray
+
+Watch 
+
+EVERYTHING but my words
+
+There you will find the Blitz
+
+There will be your answer
+
+###### 04.13.2021
+
+## Mr. Worm Bowstein
+
+Sir, your twitch is unbearably visible
+
+to the naked eye
+
+the fluttering of your elongate body
+
+not at all balanced or conceived the way a worm should
+
+be formed
+
+Sir, it's poor manners to cough here
+
+even if you are passing by
+
+snacking on your dirt and leaving it in your wake
+
+not at all as dexterous and elegant in the the way a worm should
+
+_be form_
+
+Sir, perform your dance in my right eye
+
+but I needn't give you permissive words
+
+you will do it anyway without abusive intent
+
+not at all as determined to sway the way a worm should
+
+_be for_
+
+Sir, the way you writhe about happily
+
+surely you are part of a larger formation
+
+churning and stirring across the soils gravitation
+
+not at all, and yet, entire .... the way a worm should
+
+_be_
+
 ###### 04.12.2021
 
 {% include googleDrivePlayer7.html id=page.driveId %}
