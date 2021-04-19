@@ -93,7 +93,7 @@ the fluttering of your elongate body
 
 not at all balanced or conceived the way a worm should
 
-be formed
+_be formed_
 
 Sir, it's poor manners to cough here
 
