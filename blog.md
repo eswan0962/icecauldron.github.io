@@ -17,7 +17,9 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 04.26.2021
 
+I can't believe it's been this long since I have updated this blog. Time seems to pass without me even noticing. Nothing unusual to report. Ace is on his last day visiting. Life is beautiful and painful and full.
 
 ###### 04.14.2021
 
