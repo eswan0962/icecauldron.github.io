@@ -17,6 +17,20 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 04.28.2021
+
+Creative things I need to get done:
+
+Podcast episodes - get collaborators to recite for me, The Maharathi's Journey Script, put together screen printer - print stuff on stuff
+
+Research things I need to get done:
+
+Dumb/anti-dumb glacier paper
+
+Misc things I need to get done:
+
+Get the stuff sorted and cleaned out in my room
+
 ###### 04.26.2021
 
 I can't believe it's been this long since I have updated this blog. Time seems to pass without me even noticing. Nothing unusual to report. Ace is on his last day visiting. Life is beautiful and painful and full.
