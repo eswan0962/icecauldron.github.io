@@ -1,4 +1,5 @@
 ---
+driveId: 1D0OZIhujWyUYZaHwD0ixQe2eVOHbZOaS
 driveId: 1K-jPUs-CilUY0Nr_SYawVGqBAsYOvKn4
 driveId: 1_wJ5MKTyLexNap4LC86pyxGZSsrhsiIZ
 driveId: 1_T0JaqLYfKS7FTEiMFzb-2AjABjkwohe
@@ -19,6 +20,10 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 06.02.2021
+
+{% include googleDrivePlayer10.html id=page.driveId %}
+
 ###### 05.03.2021
 
 {% include googleDrivePlayer9.html id=page.driveId %}
