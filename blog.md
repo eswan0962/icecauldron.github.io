@@ -21,6 +21,37 @@ ESS
 
 -------------------------------------------------------------------------------------------------------------------------
 
+###### 08.03.2021
+
+How long have I been stairing at your shoes
+
+as I lie on the floor where you sat a few days ago
+
+looking at your studies
+
+your list of words 
+
+repeated 
+
+rewound
+
+regurgitated
+
+reread
+
+reorganized
+
+bones, tendons, muscle, skin
+
+materialize before me
+
+I have watched 
+
+and observed enough to grant me hallucinations
+
+in those shoesies
+ 
+
 ###### 06.13.2021
 
 http://stars.chromeexperiments.com/
