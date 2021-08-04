@@ -23,7 +23,7 @@ ESS
 
 ###### 08.03.2021
 
-How long have I been stairing at your shoes
+How long have I been staring at your shoes
 
 as I lie on the floor where you sat a few days ago
 
