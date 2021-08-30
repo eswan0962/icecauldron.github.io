@@ -21,6 +21,10 @@ ESS
 
 -------------------------------------------------------------------------------------------------------------------------
 
+###### 08.29.2021
+
+Today, I have felt on top of the world in the most mundane way. The comings and goings and non-commital somethings.. the best i can do all things.. and this and that... and rest. Today everything excited me and hurt me too. I've kissed my simple self and resigned her to her glory. She won't be resigned long, I imagine. I want to be kissed more. I don't think I've said that outloud. I want to kiss more. I want to make love with food in my mouth.
+
 ###### 08.03.2021
 
 How long have I been staring at your shoes
