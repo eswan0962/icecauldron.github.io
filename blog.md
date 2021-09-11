@@ -20,6 +20,9 @@ A Personal and Anti-Personal Blog
 ESS
 
 -------------------------------------------------------------------------------------------------------------------------
+###### 09.11.2021
+
+The world is as large as it can be and as small as the head of a thumb tack. THe sun rises beyond the Kmart that closed down years ago and opens in the drive thru of the Taco Bell, with its bright colors and slushy shakes reminding me of the neon stripes on a videogame that passed its prime years ago. 20 years actually. Which is many years ago now.. Moments pass as though they never existed and years are mere minutes in the minds of technology, and my life may be 10 years at most in the end. The things that are focused on are gone in fractals, just as they always were and as they always will be.. The leaps that have been recently deduced as insurmountable are now cheesy and styleless, and I blinked and it was gone. Shucks, I will have lead thousands of more lives than any of the grandparents I held dear. I am more like a tree now... Remembering the silk worms of the spring and cooing to the rhythm of the loudest auctioneer of the day, spewing his clout. My and your head whips about wildly... sending signals to the front lines that there is no target other than that target that keeps us playing musical chairs with our attention. Even this computer runs slower than my train of thought. And here I must wait for it to catch up to me. 
 
 ###### 08.29.2021
 
