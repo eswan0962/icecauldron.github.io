@@ -19,6 +19,7 @@ A Personal and Anti-Personal Blog
 
 ESS
 
+[Agathos Cannon](https://github.com/icecauldron/bible/blob/main/Genesis.md)
 -------------------------------------------------------------------------------------------------------------------------
 ###### 09.20.2021  
 
