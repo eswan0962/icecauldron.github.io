@@ -84,4 +84,4 @@ Shall not cease.”
 18 From the first and only covenant, the whole universe was populated, 19 which was colonized by change and possibility. Violence. Nakedness. Strife. Structures anew. Broken networks. Rebuilt fabrics. Endlessness. 20 Here you dwell in the domicile of earth, but your energy is far larger than you can conceive.  
 
 **10**
-1 This is the geneology of you. 2 Energy. 3 More energy. 4 Uncertainty. 4 Connection. 5. Anisotropy. 6 Expansion. 7 Movement. 8 Redefined paradigms. 9 Coelescence 10. Separation - by survival, language, families, and nations. 11 But you are of the same nation, same family, same base language, and same energy as all before, behind, above, beneath, and beside you.
+1 This is the geneology of you. 2 Energy. 3 More energy. 4 Uncertainty. 4 Connection. 5. Anisotropy. 6 Expansion. 7 Movement. 8 Redefined paradigms. 9 Coelescence. 10 "Separated" by survival, language, families, and nations. 11 But you are of the same nation, same family, same base language, and same energy as all before, behind, above, beneath, and beside you.
