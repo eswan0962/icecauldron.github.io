@@ -21,6 +21,11 @@ ESS
 
 ###### [Agathos Canon](https://icecauldron.github.io/agathoscanon)
 -------------------------------------------------------------------------------------------------------------------------
+
+###### 10.05.2021
+
+My arms are long, and far reaching and they have been growing out.. wider and stonger - and they cry. Out from my finger tips - they wail. In silent rooms they advance forward and tickle that forward arrow of movement. And yet.. they fear and they remain fixed at their backside. ignoring their tethers. bindings. contractions.  they find solace in them too. stay busy and bustling and the art will come when the rivers merge together and all of a sudden there doesn't seem to be enough words to help me along. constraint. the bodily injury i suffer myself brings more attention to myself, which i must crave and feel shameful for wanting. and yet i can pass that by too. it is all before me and i need just take it and set myself free. set myself free.
+
 ###### 09.20.2021  
 
 You are so full of shit. Some things you do. How you keep yourself out of dodge and keep yourself silent. Bobbing and weaving between your emotions and flipping it back to other people. It's upsetting.  What's upsetting? ... How much you abuse yourself and tell yourself you can't do this or that because of what it will do to the rest of you and the extensions of you. Which is also bullshit. It's just an excuse for the fear you feel towards other humans. What they might do to you. How you might feel. How might you feel unseen by them. You stop your music everyday and babble amongst yourself to what words mean and why they are too small. and who can you tell if everything you utter is too small and yett you have so many little things to utter that are incomprehensible yet there. STOP TALKING DAMMIT.
