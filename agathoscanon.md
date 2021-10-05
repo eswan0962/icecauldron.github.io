@@ -89,23 +89,23 @@ Shall not cease.”
 **11** (09/28/2021)  
 1 The whole universe has always had one language and one speech. 2 It is only when networks divided, split off, and expanded, stretching over billions of fathoms of space and millenia, did a conscious perception of difference form. Structures on top of structures eventually hid the first syntax. 3 From one infinitesimal point to another, there has been continuous building and restructuring and growth and change. This uncertainty has built our homes on this earth and in our minds. 4 Without prompting, energy, which birthed the elements of the universe, built Eden, which we dwell in and contribute to every part of.  
 
-(10/05/2021) 5 You have and will contribute to the buildings of cities, and your children will see the results of your work. 6 And all things, despite their differences, will work together to build these cities they will have a common way to communicate. And nothing you conceive for this city is impossible. 7 Come, let us not quarrel and confuse one another over subtle differences in our speech and movement. 8 Let not our scattering over every migrating surface of the earth keep us from loving and working together in building this nameless city. 9 For we are not singularly building a city, or planet, or galaxy, or universe but a vast collection of connectivity and change.  
+(10/05/2021) 5 You have and will contribute to the buildings of cities, and your children will see the results of your work. 6 And all things, despite their differences, will work together to build these cities they will have a common way to communicate. And nothing you conceive for this city is impossible. 7 Come, let us not quarrel and confuse one another over subtle differences in our speech and movement. 8 Let not our scattering over every migrating surface of the earth keep us from loving and working together in building this nameless city. 9 For we are not singularly building a city, or planet, or galaxy, or universe, but instead a vast collection of connectivity and change.  
 
 
 **12**  
-1 Now, this life of yours is fragile. Everything is fragile and finite and which is what makes all unique and beautiful. Every moment anew. Every organism is being born, and blooming, and then dying away. All at once. Every rock is crumbling, compressing, crystallizing, and moving. All moves. All changes. All energy is dynamically resolved to pass by quickly through its powdery, pastel dawns and ablazely desperate dusks.  
+1 Now, this life of yours is fragile. Everything is fragile and finite, which is what makes all rare and beautiful. Every moment anew. Every organism is being born, and blooming, and then dying away. All at once. Every rock is crumbling, compressing, crystallizing, and moving. All moves. All changes. All energy is dynamically resolved to pass by through its powdery, pastel dawns and ablazely desperate dusks - quickly.  
 
 So, leave your country,  
 and your relatives,  
 and your house,  
 and go see the land which regards you.  
 2 The world welcomes your eager eyes,  
-and asks for nothing.  
+and asks for nothing in return.  
 Your explorations will bless you abundantly,  
 and you will be beheld by all you behold as well,  
-and you shall be a blessing as well,  
-3 The universe blesses your existence,  
+and you shall be a blessing,  
+3 The universe commends your existence,  
 for it was so hard to get to you,
 and all the extensions and families of you.  
 
-4 You won't be able to stop yourself, for it is in your nature to change and depart, as directed by the nature of the original energy. 5 You can take your possessions, and the people you have designed a life with along the way, or not, but they to will change and wither and pass on. You will set out to unknown lands that are homes to others and they will come to your former home and take your place. 6 You may pass through the land as far as your will will take you to a peoples seemingly unlike your own. 7 Be not deceived by the masks incumbering true connection and oneness with those of similar sinew. 8 Cross mountains with them, build an alter to your friendship and familyship, and accept that it will fall away too. Pitch your tent and look to the west and the east and call on your brothers and sisters to praise all that is given and taken around you. 9 Then journey on. Again and again you will do this, and it will be good.  
+4 You won't be able to stop yourself, for it is in your nature to change and depart, as directed by the nature of the original energy. 5 You can take your possessions, and the people you have designed a life with along the way, or not, but they too will change and wither and pass on. You will set out to unknown lands that are homes unto others. Strangers will come to your former homeland and take your place. 6 You may pass through the land as far as your testament will take you. There finding and belonging to a peoples seemingly unlike what you once called "my own". 7 Be not deceived by the masks incumbering true connection and oneness with those of similar sinew. 8 Cross mountains with them, build an alter to your friendship and familyship, and accept that it will fall away too. Pitch your tent and look to the west and the east and call on your brothers and sisters to praise all that is given and taken around you. 9 Then journey on. Again and again you will do this, and it will be good.  
