@@ -93,7 +93,7 @@ Shall not cease.”
 
 
 **12**  
-1 Now, this life of yours is fragile. Everything is fragile and finite, which is what makes all rare and beautiful. Every moment anew. Every organism is being born, and blooming, and then dying away. All at once. Every rock is crumbling, compressing, crystallizing, and moving. All moves. All changes. All energy is dynamically resolved to pass by through its powdery, pastel dawns and ablazely desperate dusks - quickly.  
+1 Now, this life of yours is fragile. Everything is fragile and finite, which is what makes all rare and beautiful. Every moment anew. Every organism is being born, and blooming, and then dying away. All at once. Every rock is crumbling, compressing, crystallizing, and moving. All moves. All changes. All energy is dynamically resolved to pass by through its powdery, pastel dawns and surrender in an ablaze, desperate dusks - quickly.  
 
 So, leave your country,  
 and your relatives,  
