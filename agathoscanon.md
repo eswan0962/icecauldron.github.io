@@ -105,7 +105,7 @@ Your explorations will bless you abundantly,
 and you will be beheld by all you behold as well,  
 and you shall be a blessing,  
 3 The universe commends your existence,  
-for it was so hard to get to you,
+for it was so hard to get to you,  
 and all the extensions and families of you.  
 
 4 You won't be able to stop yourself, for it is in your nature to change and depart, as directed by the nature of the original energy. 5 You can take your possessions, and the people you have designed a life with along the way, or not, but they too will change and wither and pass on. You will set out to unknown lands that are homes unto others. Strangers will come to your former homeland and take your place. 6 You may pass through the land as far as your testament will take you. There finding and belonging to a peoples seemingly unlike what you once called "my own". 7 Be not deceived by the masks incumbering true connection and oneness with those of similar sinew. 8 Cross mountains with them, build an alter to your friendship and familyship, and accept that it will fall away too. Pitch your tent and look to the west and the east and call on your brothers and sisters to praise all that is given and taken around you. 9 Then journey on. Again and again you will do this, and it will be good.  
