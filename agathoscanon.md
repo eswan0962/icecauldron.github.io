@@ -5,7 +5,7 @@ _It is told here._
 _It has passed through however many eyes have created mine._
 
 ## Genesis
-[1](https://icecauldron.github.io/agathoscanon/Genesis01)
+[1](https://icecauldron.github.io/Genesis01)
 
 **1** (08/30/2021)  
 1 In the beginning there was uncertainty. 2 And the universe had no form, and void; and we know not what was before deep time. And then, even in this uncertainty, there was pure energy and its children. 3 And in its birth, this energy produced immense heat, and light, and matter. 4 The energy whipped about wildly, without bounds or restriction, and it still does. 5 The energy could not be observed by the structures it built, it just was.  
