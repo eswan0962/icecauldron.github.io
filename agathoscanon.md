@@ -1,10 +1,10 @@
 <h2 align="center">
 
-<em>This is the Bible.</em>  
+<em>This is a Bible.</em>  <br>
 
-<em>It is told here.</em>  
+<em>It is told here.</em>  <br>
 
-<em>It has passed through however many eyes have created mine.</em>  
+<em>It has passed through however many eyes have created mine.</em>  <br>
 
 </h2>
 
