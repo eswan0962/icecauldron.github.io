@@ -21,21 +21,21 @@ Genesis
 
 </h2>
 
-<br>
-
-[Chapter 1](https://icecauldron.github.io/Genesis/Genesis01)  
-[Chapter 2](https://icecauldron.github.io/Genesis/Genesis02)  
-[Chapter 3](https://icecauldron.github.io/Genesis/Genesis03)  
-[Chapter 4](https://icecauldron.github.io/Genesis/Genesis04)  
-[Chapter 5](https://icecauldron.github.io/Genesis/Genesis05)  
-[Chapter 6](https://icecauldron.github.io/Genesis/Genesis06)  
-[Chapter 7](https://icecauldron.github.io/Genesis/Genesis07)  
-[Chapter 8](https://icecauldron.github.io/Genesis/Genesis08)  
-[Chapter 9](https://icecauldron.github.io/Genesis/Genesis09)  
-[Chapter 10](https://icecauldron.github.io/Genesis/Genesis10)  
-[Chapter 11](https://icecauldron.github.io/Genesis/Genesis11)  
-[Chapter 12](https://icecauldron.github.io/Genesis/Genesis12)  
-
+<br> 
+ 
+  [Chapter 1](https://icecauldron.github.io/Genesis/Genesis01) 
+  [Chapter 2](https://icecauldron.github.io/Genesis/Genesis02)  
+  [Chapter 3](https://icecauldron.github.io/Genesis/Genesis03)  
+  [Chapter 4](https://icecauldron.github.io/Genesis/Genesis04)  
+  [Chapter 5](https://icecauldron.github.io/Genesis/Genesis05)  
+  [Chapter 6](https://icecauldron.github.io/Genesis/Genesis06)  
+  [Chapter 7](https://icecauldron.github.io/Genesis/Genesis07)  
+  [Chapter 8](https://icecauldron.github.io/Genesis/Genesis08)  
+  [Chapter 9](https://icecauldron.github.io/Genesis/Genesis09)  
+  [Chapter 10](https://icecauldron.github.io/Genesis/Genesis10)  
+  [Chapter 11](https://icecauldron.github.io/Genesis/Genesis11)  
+  [Chapter 12](https://icecauldron.github.io/Genesis/Genesis12)  
+  
 
 <p align="center">
  
