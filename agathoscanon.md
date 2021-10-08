@@ -39,7 +39,7 @@ Genesis
 
 <p align="center">
  
-  <img width="460" height="460" src="https://user-images.githubusercontent.com/49413578/136615174-807a1821-eafd-4449-ba75-dbfb4e8e54e6.png">
+  <img width="460" height="460" src="https://user-images.githubusercontent.com/49413578/136617440-bff21b50-0069-49f1-b1f2-434a86686b1a.png">
   
 </p>
 
