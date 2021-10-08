@@ -1,0 +1,3 @@
+
+**11** (09/28/2021)  
+1 The whole universe has always had one language and one speech. 2 It is only when networks divided, split off, and expanded, stretching over billions of fathoms of space and millenia, did a conscious perception of difference form. Structures on top of structures eventually hid the first syntax. 3 From one infinitesimal point to another, there has been continuous building and restructuring and growth and change. This uncertainty has built our homes on this earth and in our minds. 4 Without prompting, energy, which birthed the elements of the universe, built Eden, which we dwell in and contribute to every part of.  
