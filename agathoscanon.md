@@ -8,14 +8,14 @@ _It has passed through however many eyes have created mine._
 
 </h2>
 
+
 <h1 align='center'>
   
 Genesis
 
 </h1>
 
-<h3 align='center'>
-
+   
 [Chapter 1](https://icecauldron.github.io/Genesis/Genesis01)  
 [Chapter 2](https://icecauldron.github.io/Genesis/Genesis02)  
 [Chapter 3](https://icecauldron.github.io/Genesis/Genesis03)  
@@ -29,8 +29,10 @@ Genesis
 [Chapter 11](https://icecauldron.github.io/Genesis/Genesis11)  
 [Chapter 12](https://icecauldron.github.io/Genesis/Genesis12)  
 
-</h3>
 
-
-
+<p align="center">
+ 
+  <img width="460" height="300" src="https://user-images.githubusercontent.com/49413578/136612430-dcfc4d11-f25d-4703-882d-15fecf380e96.PNG">
+  
+</p>
 
