@@ -1,4 +1,10 @@
-<h2 align="center">
+<h1 align="center">
+  
+  AGATHOS CANON
+  
+</h1>
+
+<h3 align="center">
 
 <em>This is a Bible.</em>  <br>
 
@@ -6,14 +12,14 @@
 
 <em>It has passed through however many eyes have created mine.</em>  <br>
 
-</h2>
+</h3>
 
 -------------------------------------------------------------------------------------------------------------------------------------------------------
-<h1 align='center'>
+<h2 align='center'>
   
 Genesis
 
-</h1>
+</h2>
 
 <br>
 
@@ -33,7 +39,7 @@ Genesis
 
 <p align="center">
  
-  <img width="460" height="300" src="https://user-images.githubusercontent.com/49413578/136615174-807a1821-eafd-4449-ba75-dbfb4e8e54e6.png">
+  <img width="460" height="460" src="https://user-images.githubusercontent.com/49413578/136615174-807a1821-eafd-4449-ba75-dbfb4e8e54e6.png">
   
 </p>
 
