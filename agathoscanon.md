@@ -30,12 +30,7 @@ Genesis
 [Chapter 12](https://icecauldron.github.io/Genesis/Genesis12)  
 
 </h3>
-<br/>
-<br/>
 
-<p align="center">
- 
-  <img width="460" height="300" src="https://user-images.githubusercontent.com/49413578/136612430-dcfc4d11-f25d-4703-882d-15fecf380e96.PNG">
-  
-</p>
+
+
 
