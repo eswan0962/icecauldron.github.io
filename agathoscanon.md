@@ -1,10 +1,10 @@
 <h2 align="center">
 
-_This is the Bible._
+<em>This is the Bible.</em>
 
-_It is told here._
+<em>It is told here.</em> 
 
-_It has passed through however many eyes have created mine._
+<em>It has passed through however many eyes have created mine.</em>  
 
 </h2>
 
@@ -14,9 +14,10 @@ _It has passed through however many eyes have created mine._
 Genesis
 
 </h1>
+-------------------------------------------------------------------------------------------------------------------------------------------------------
+<br>
 
-   
-[Chapter 1](https://icecauldron.github.io/Genesis/Genesis01)  
+>>>>>>>>>>>>>>>>>>>>>>>[Chapter 1](https://icecauldron.github.io/Genesis/Genesis01)  
 [Chapter 2](https://icecauldron.github.io/Genesis/Genesis02)  
 [Chapter 3](https://icecauldron.github.io/Genesis/Genesis03)  
 [Chapter 4](https://icecauldron.github.io/Genesis/Genesis04)  
