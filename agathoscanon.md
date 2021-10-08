@@ -1,8 +1,8 @@
 <h2 align="center">
 
-<em>This is the Bible.</em>
+<em>This is the Bible.</em>  
 
-<em>It is told here.</em> 
+<em>It is told here.</em>  
 
 <em>It has passed through however many eyes have created mine.</em>  
 
