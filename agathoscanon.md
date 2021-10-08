@@ -1,10 +1,21 @@
+<h2 align="center">
+
 _This is the Bible._
 
 _It is told here._
 
 _It has passed through however many eyes have created mine._
 
-## Genesis
+</h2>
+
+<h1 align='center'>
+  
+Genesis
+
+</h1>
+
+<h3 align='center'>
+
 [Chapter 1](https://icecauldron.github.io/Genesis/Genesis01)  
 [Chapter 2](https://icecauldron.github.io/Genesis/Genesis02)  
 [Chapter 3](https://icecauldron.github.io/Genesis/Genesis03)  
@@ -17,6 +28,9 @@ _It has passed through however many eyes have created mine._
 [Chapter 10](https://icecauldron.github.io/Genesis/Genesis10)  
 [Chapter 11](https://icecauldron.github.io/Genesis/Genesis11)  
 [Chapter 12](https://icecauldron.github.io/Genesis/Genesis12)  
+
+</h3>
+
 
 
 
