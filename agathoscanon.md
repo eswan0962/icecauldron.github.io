@@ -17,7 +17,7 @@ Genesis
 -------------------------------------------------------------------------------------------------------------------------------------------------------
 <br>
 
->>>>>>>>>[Chapter 1](https://icecauldron.github.io/Genesis/Genesis01) >>>>>>>>>>>>>>
+>>>>>>>[Chapter 1](https://icecauldron.github.io/Genesis/Genesis01) 
 [Chapter 2](https://icecauldron.github.io/Genesis/Genesis02)  
 [Chapter 3](https://icecauldron.github.io/Genesis/Genesis03)  
 [Chapter 4](https://icecauldron.github.io/Genesis/Genesis04)  
