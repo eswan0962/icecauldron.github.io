@@ -1,0 +1,3 @@
+**14**
+
+1 As man came together and multiplied, groups of people with common histories and experiences migrated, toiled, and survived to grow into empires. 2 Rulers of these people worked together and warred and changed and passed on, just as all did before. 3 Some groups grew large and others stayed small and others integrated into cultures stronger than theirs. 4 Leaders, kings, chieftans, emperors, or other sovereigns took the places of early gods and those early gods took the place of nature and the changing patterns of the universe. 5 These peoples developed the wilderness and battled for territory on every inch of land. 6 We've made slimepits into roads and forests into village centers. 7 
