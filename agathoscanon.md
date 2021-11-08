@@ -37,8 +37,8 @@ Genesis
   [Chapter 12](https://icecauldron.github.io/Genesis/Genesis12)  
   [Chapter 13](https://icecauldron.github.io/Genesis/Genesis13)  
   [Chapter 14](https://icecauldron.github.io/Genesis/Genesis14)  
-  [Chapter 15](https://icecauldron.github.io/Genesis/Genesis15)
-  
+  [Chapter 15](https://icecauldron.github.io/Genesis/Genesis15)  
+  [Chapter 16](https://icecauldron.github.io/Genesis/Genesis16)
   
 
 <p align="center">
