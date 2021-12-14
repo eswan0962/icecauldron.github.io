@@ -1,3 +1,3 @@
 **18**  
 
-1 Sit at threshold of your home, or a pass through which you live, in the heat of the day. 2 Lift up your eyes and look and see all that is in front of you. At your feet and before your hands. 3 If you find favor in what you see, pass not away from the scene,
+1 Sit at threshold of your home, or a pass through which you live, in the heat of the day. 2 Lift up your eyes and look and see all that is in front of you. At your feet and before your hands. 3 If you find favor in what you see, pass not away from the scene, but shower it with the wholeness of energy within you. 4 Let yourself find favor in what your eyes collect and watch openly. 5 Let yourself pray, be thirsty, washed at your feet, rested beneath a fragrant juniper, grabbing a morsel of bread for the comfort of your hands. 6 After that, pass on and continue to traverse what your eyes, ears, nose, fingers, and tongue expose to you.
