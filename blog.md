@@ -22,6 +22,10 @@ ESS
 ###### [Agathos Canon](https://icecauldron.github.io/agathoscanon)
 -------------------------------------------------------------------------------------------------------------------------
 
+###### 01.07.2022
+
+I always forget to write. Especially when I'm feeling like what I think happens to a body in a time warp or a machine or universe portal that fractalizes all your thoughts and body parts and pretends to make you appear to have showed up in some distant space, but in fact has scrambled everything and randomly and gravitationallly made your limbs and neurons reconnect again... as if it never happened. As if it always happens and we never know.  
+
 ###### 10.05.2021
 
 My arms are long, and far reaching and they have been growing out.. wider and stonger - and they cry. Out from my finger tips - they wail. In silent rooms they advance forward and tickle that forward arrow of movement. And yet.. they fear and they remain fixed at their backside. ignoring their tethers. bindings. contractions.  they find solace in them too. stay busy and bustling and the art will come when the rivers merge together and all of a sudden there doesn't seem to be enough words to help me along. constraint. the bodily injury i suffer myself brings more attention to myself, which i must crave and feel shameful for wanting. and yet i can pass that by too. it is all before me and i need just take it and set myself free. set myself free.
