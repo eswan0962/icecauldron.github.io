@@ -24,22 +24,22 @@ ESS
 
 ###### 03.06.2021   
 
-The raven slickens along 
-fuck
-fuck 
-fuck
-so fucking slick
-oily fucker
-singing to me from its
-butter bath
-bubble bath
-the family must protect itself
-me
-me
-we can win this
-harddderrr
-harder
-you fucking herding herder
+The raven slickens along  
+fuck  
+fuck  
+fuck  
+so fucking slick  
+oily fucker  
+singing to me from its  
+butter bath  
+bubble bath  
+the family must protect itself  
+me  
+me  
+we can win this  
+harddderrr  
+further  
+you fucking herding herder  
 
 
 ###### 01.07.2022
