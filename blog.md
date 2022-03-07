@@ -22,6 +22,26 @@ ESS
 ###### [Agathos Canon](https://icecauldron.github.io/agathoscanon)
 -------------------------------------------------------------------------------------------------------------------------
 
+###### 03.06.2021
+
+The raven slickens along 
+fuck
+fuck 
+fuck
+so fucking slick
+oily fucker
+singing to me from its
+butter bath
+bubble bath
+the family must protect itself
+me
+me
+we can win this
+harddderrr
+harder
+you fucking herding herder
+
+
 ###### 01.07.2022
 
 I always forget to write. Especially when I'm feeling like what I think happens to a body in a time warp or a machine or universe portal that fractalizes all your thoughts and body parts and pretends to make you appear to have showed up in some distant space, but in fact has scrambled everything and randomly and gravitationallly made your limbs and neurons reconnect again... as if it never happened. As if it always happens and we never know.  
