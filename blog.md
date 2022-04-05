@@ -21,8 +21,12 @@ ESS
 
 ###### [Agathos Canon](https://icecauldron.github.io/agathoscanon)
 -------------------------------------------------------------------------------------------------------------------------
+###### 04.05.2022
 
-###### 03.06.2021   
+I just finished American Gods. I'm not disappointed, but the whole book kind of felt like a snapshot to nothing. Here is a man who is dead in all other terms but in flesh and then he feels the need to be loyal to someone he is working for because it is a value system to hold on to.. Then just accepts that the world is strange enought that ancient gods are real, the dead don't stay dead, and the fabrics of reality are contrived. That is all fine, but then he becomes inspired to live by dying and then the author gives Shadow this wonderfully portrayed death and casually deals big plot blows (ex. Wednesday/Odin is Shadow) which get completely swallowed up by the end of the story (
+
+
+###### 03.06.2022   
 
 The raven slickens along  
 fuck  
