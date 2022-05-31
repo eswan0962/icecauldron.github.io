@@ -43,7 +43,7 @@ Genesis
   [Chapter 17](https://icecauldron.github.io/Genesis/Genesis17)  
   [Chapter 18](https://icecauldron.github.io/Genesis/Genesis18)  
   [Chapter 19](https://icecauldron.github.io/Genesis/Genesis19)  
-  [Chapter 20](https://icecauldron.github.io/Genesis/Genesis20)
+  [Chapter 20](https://icecauldron.github.io/Genesis/Genesis20)  
   [Chapter 21](https://icecauldron.github.io/Genesis/Genesis21)
 
 <p align="center">
