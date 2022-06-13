@@ -1,3 +1,7 @@
 **22**
   
-1 
+1 And it has, is, and will come to pass that the creations of the universe will tempt you. They will whisper, "Behold, here I am." 2 And you will take what it offers and use it, with love. But there is always a give to every take. Direct or indirect offerings will be made upon one of many of the mountains that you climbed, are climbing, and will climb.  
+
+3 Rising up early in the morning, one foot finds its grounding and the other follows. You walk tangentially to all realities with the crisp breezes of the gaseous currents at your back. Torrents of beating, breathing beings ambulate around you while donning their gifts. 4 One breath, then another, and another still. Lifting their visual, auditory, aromatic, percussive, and taste receptors to far off places - awaiting the uncertainty of the next sensation. 5 When your hands are open to all gifts, each erosive, yet expanding, step forward is able to accept the burnt results of worship. 6 Worshipping in cycles what has come, what is here, and what is yet to come. In this time, laying bare the obvious death and birth cycles of everything all around you is all there actually is. 7 Here you are, my sister, my brother, behold the fire and the water other textures of the universe. 8 You are both and all and you are together.  
+
+9 Build alters and be together, and attempt, and take, and sacrifice, for it is all good. 10 Your submission is freeing. 11 Here you are. It is yours. Inherit it. 
