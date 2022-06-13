@@ -1,0 +1,4 @@
+**23**
+  
+1 Life is fragile. 2 The moments you are spending reading this text are few, monumentous, and rare. You are incredibly singular. Most species of biotic never made it to the living part. It took billions of years of working and reworking and testing information to get to ye. 3 The you that exists here - for this mere, tiny moment is an infinite, yet patterned, opportunity. Everything had to be exactly right for you to have the liberty to weep, be curious, smile, persevere, then die. 4 I am a stranger and a sojourner with you in this world, brothers and sisters. 5 I will return to the muds and oceans with all kinds of beings born unto this world. None may escape it. 6 Hear me, for thou art a mighty person. But even a sepulchre erected at the end of your days is not you, and while your energy will continue through the uncertain universe, this is the only opportunity for this version of yourself. This moment!  7
+
