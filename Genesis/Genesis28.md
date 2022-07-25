@@ -1,0 +1,3 @@
+**28**  
+
+1 So you will be summoned, blessed, and give of yourself in all capacities. 2 Many shoulds and should nots will pass before your choice. 3 Each one of them a new branch of the universe's uncertain, undefined blueprint. 4 The consequences too of these choices are fertile and will beget generations of thought, choice, and consequence. 5 And you will choose, knowing that even not choosing between obvious paths is itself a path. 6 And you will be off down that uncertain, infinite path, always going forward, never in a circle or backward. 7 For even in relative time there may be curvature
