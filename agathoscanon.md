@@ -53,6 +53,7 @@ Genesis
   [Chapter 27](https://icecauldron.github.io/Genesis/Genesis27)  
   [Chapter 28](https://icecauldron.github.io/Genesis/Genesis28)  
   [Chapter 29](https://icecauldron.github.io/Genesis/Genesis29)  
+  [Chapter 30](https://icecauldron.github.io/Genesis/Genesis30)  
 
 <p align="center">
  
