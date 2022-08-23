@@ -4,4 +4,6 @@
 
 5 The leader of the bunch promised their kinsmen protection on their journey. 6 The leader sent for their kin saying, I am aware that we no longer thrive here as much as we use to. 7 We have been overworked and cheated and only reaped minimal profits. 8 Our people have worked as hard as they could and conceded in every possible way to keep the peace. 9 We are no longer bound to this land and we should set off down a new path. 10 If we are together in this, we will succeed in anything."  
 
-11 The leader's kin responded, "Is there not still reason for us to stay in my father's household? Does he hate us so much as to take all from us and leave nothing for our children, his own descendents? I believe you to be correct, let us do as you have told."
+11 The leader's kin responded, "Is there not still reason for us to stay in my father's household? 12 Does he hate us so much as to take all from us and leave nothing for our children, his own descendents? 13 I believe you to be correct, let us do as you have suggested."  
+
+14 So the leader got up, put their kin on the path toward their old territory with all their livestock and possessionsthat they had acquired and they put one foot in front of the other and accepted the impending change. 
