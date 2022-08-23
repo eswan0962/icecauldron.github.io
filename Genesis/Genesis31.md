@@ -6,4 +6,6 @@
 
 11 The leader's kin responded, "Is there not still reason for us to stay in my father's household? 12 Does he hate us so much as to take all from us and leave nothing for our children, his own descendents? 13 I believe you to be correct, let us do as you have suggested."  
 
-14 So the leader got up, put their kin on the path toward their old territory with all their livestock and possessionsthat they had acquired and they put one foot in front of the other and accepted the impending change. 
+14 So the leader got up, put their kin on the path toward their old territory with all their livestock and possessions that acquired and they put one foot in front of the other. Here, all started accepted the impending change. 
+
+15 Days later, the father figure realized the absence of 
