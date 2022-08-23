@@ -1,0 +1,3 @@
+**31**
+
+1 There once was an organism that had a multicolored facade and was covered in series of chevron angled scales surrounded smooth, unaged skin. 2 Within its tribe of similarly shaped creatures, it spent years manipulating the land and creatures within it that they tended to. 3 One day, one of them was reminded to go back to the land that they had migrated from as their land they were living on had grown sparse of nutrients and the soil was depleted by greed and monogrowth. 4 Several tribesmen agreed to set off for the old territory that would be new to them in memory as it had been many years since they had known its ecosystem and soils. 5 The leader of the bunch
