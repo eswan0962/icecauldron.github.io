@@ -8,4 +8,6 @@
 
 14 So the leader got up, put their kin on the path toward their old territory with all their livestock and possessions that acquired and they put one foot in front of the other. Here, all started accepted the impending change. 
 
-15 Days later, the father figure of the clan realized the absence of some of his kin and set out behind them. 16 Several nights later, he reached the travellers and said, "Why have you gone? Leaving me and all that you know and not letting me know?" 17 The leader responded, "I was afraid and convinced myself that you would take everything from me. Identify whatever I have that is yours, in front of ourkin, and take it."
+15 Days later, the father figure of the clan realized the absence of some of his kin and set out behind them. 16 Several nights later, he reached the travellers and said, "Why have you gone? Leaving me and all that you know and not letting me know?" 17 The leader responded, "I was afraid and convinced myself that you would take everything from me. Identify whatever I have that is yours, in front of our kin, and take it."  
+
+18 
