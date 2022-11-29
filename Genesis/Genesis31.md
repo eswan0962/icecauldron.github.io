@@ -10,4 +10,6 @@
 
 15 Days later, the father figure of the clan realized the absence of some of his kin and set out behind them. 16 Several nights later, he reached the travellers and said, "Why have you gone? Leaving me and all that you know and not letting me know?" 17 The leader responded, "I was afraid and convinced myself that you would take everything from me. Identify whatever I have that is yours, in front of our kin, and take it."  
 
-18 
+18 "But you have also taken my gods in your rush to get away. Why would you do this?" In the leaders haste, he had not accounted for the faith or tangibles that may be lost in the uproar. 19 He set off to restore his former fathers' things but could not find them. One of his kin hid information about the items they stole, and their withheld information resulted in argument between the leader and father. 20 Grievances from the past surfaced as accusations and demands filled the air of mistreatment and lack of gratitude.  
+
+21 Once all was said, a treaty was drawn up to witness the end of the debate and therefore the relationship. Agree to disagree and bear witness to the consequence.
