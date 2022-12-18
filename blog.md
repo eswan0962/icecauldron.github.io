@@ -22,6 +22,12 @@ ESS
 ###### [Agathos Canon](https://icecauldron.github.io/agathoscanon) This is an ongoing retelling of the Bible.
 -------------------------------------------------------------------------------------------------------------------------
 
+## Preparatory Responses to Emotional Responses  
+
+###### 12.18.2022  
+
+
+
 ## Opposite Day
 
 ###### 11.26.2022  
