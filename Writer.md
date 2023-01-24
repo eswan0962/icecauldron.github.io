@@ -12,6 +12,3 @@ I am also in the process of creating several play scripts for a genre of theater
 
 I would love to be part of a forward, inspiring art form that allows the creativity of experiential connections to generate the absurd and brilliant features of universal image circuitry.
 
-Best,
-
-Emma Swaninger
