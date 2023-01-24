@@ -1,3 +1,3 @@
 **33  
 
-1 
+1 You may see 400 men approaching you with an old foe at their lead, and you may not know their intent. 2 Fearfully, you may hide that which is dearest to you beyond your shoulder, with the closest to your heart the furthest away. 3 Yet, in your defensiveness you may find that you are met with connectedness and love, instead of aggression. 4 Though it is instictive to protect and keep awareness of incoming and potential danger, do not let your heart forget the capacity for goodness in men and all creatures. 5 For all kinds of creatures and plants and innanimate life are good children of the universe. 6 If you find favor and give gifts of faith unto others' character, you will be gifted 10 fold.
